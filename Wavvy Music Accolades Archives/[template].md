@@ -123,9 +123,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🥇WINNERS will be shared by cXc Music's official accounts, including a video, articles, and more. Winning tracks are recorded in an immutable record of great music. 
 
-🌊 Wavvy Music Accolades take place Weekly, with one winner in four categories: Music Video, Single, Live Performance, and Album.
+🌊 Wavvy Music Accolades take place Monthy, with one winner in four categories: Music Video, Single, Live Performance, and Album.
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAwOTU4OTAwNl19
+eyJoaXN0b3J5IjpbOTk0NzhdfQ==
 -->
