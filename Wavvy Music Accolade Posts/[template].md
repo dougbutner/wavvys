@@ -4,7 +4,7 @@
 
 <hr>
 
-# Watch the awards here, presented by [Douglas](https://douglas.life)
+# Watch the winnimusic playlist here, presented by [Douglas](https://douglas.life)
 
 
 
@@ -127,5 +127,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc0NzY5NzQ4M119
+eyJoaXN0b3J5IjpbNjg3OTUwMzg5LC03NDc2OTc0ODNdfQ==
 -->
