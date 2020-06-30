@@ -7,7 +7,7 @@ Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to wi
 
 ## Watch the Wavvys
 
-On Youtube
+On [Youtube](https://www.youtube.com/watch?v=FCF4niA8KUU&list=PLrr_9HPPROScrc1wx-gqLvWOwYfF_karW)
 
 or Medium
 
@@ -27,6 +27,6 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMzc0NzAyMTcsLTUxNzE0ODA2MywyNz
-U4NzIzODNdfQ==
+eyJoaXN0b3J5IjpbNjUyNDc0MDA4LC01MTcxNDgwNjMsMjc1OD
+cyMzgzXX0=
 -->
