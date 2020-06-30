@@ -7,6 +7,8 @@ Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to wi
 
 ## Watch the Wavvys
 
+
+
 ## Format
 We select one winner in four categories: Music Video, Single, Live Performance, and Album
 
@@ -18,6 +20,6 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODI1ODI5NjcwLC01MTcxNDgwNjMsMjc1OD
+eyJoaXN0b3J5IjpbMTEzNTk1ODUwLC01MTcxNDgwNjMsMjc1OD
 cyMzgzXX0=
 -->
