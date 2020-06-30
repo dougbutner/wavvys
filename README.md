@@ -7,13 +7,11 @@ Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to wi
 
 ## Watch the Wavvys
 
-On [Youtube](https://www.youtube.com/watch?v=FCF4niA8KUU&list=PLrr_9HPPROScrc1wx-gqLvWOwYfF_karW)
+On **[Youtube](https://www.youtube.com/watch?v=FCF4niA8KUU&list=PLrr_9HPPROScrc1wx-gqLvWOwYfF_karW)**
 
-or [Medium](https://medium.com/wavvys)
+or **[Medium](https://medium.com/wavvys)**
 
-or [Hive](https://hive.blog/created/wavvys)
-
-or Steemit
+or **[Hive](https://hive.blog/created/wavvys)** / **[Steemit](https://steemit.com/created/wavvys)** (Sort by New to see all)
 
 
 ## Format
@@ -27,6 +25,6 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAxMTU3OTE3MSw2NTI0NzQwMDgsLTUxNz
-E0ODA2MywyNzU4NzIzODNdfQ==
+eyJoaXN0b3J5IjpbLTE0NzMzNTg0NjAsNjUyNDc0MDA4LC01MT
+cxNDgwNjMsMjc1ODcyMzgzXX0=
 -->
