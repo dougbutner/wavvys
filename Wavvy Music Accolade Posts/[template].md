@@ -6,7 +6,7 @@
 
 # Watch the winning music playlist here, presented by [Douglas](https://douglas.life)
 
-https://www.youtube.com/watch?v=ykVbj6kim6g&list=PLrr_9HPPROSeMGhJPQC9-WBJxx98KYn68&index=2
+
 
 
 <hr>
@@ -127,5 +127,6 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTcxMjY1MDcxNywtNzQ3Njk3NDgzXX0=
+eyJoaXN0b3J5IjpbMjAwOTU4OTAwNiwtNzEyNjUwNzE3LC03ND
+c2OTc0ODNdfQ==
 -->
