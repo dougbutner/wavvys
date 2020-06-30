@@ -27,8 +27,9 @@ Both Douglas and Karelia make the selections.
 
 
 ## Sponsors
-The Wavvys are put on 
+The Wavvys are put on by [cXc Music](https://music.cxc.world), an application by [Current X Change LLC](https://currentxchange.com)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzc3MzA5OTIsMTM2MDM5NjYzMiw2NT
-I0NzQwMDgsLTUxNzE0ODA2MywyNzU4NzIzODNdfQ==
+eyJoaXN0b3J5IjpbLTEyMjYzNDA5OTMsLTIwMzc3MzA5OTIsMT
+M2MDM5NjYzMiw2NTI0NzQwMDgsLTUxNzE0ODA2MywyNzU4NzIz
+ODNdfQ==
 -->
