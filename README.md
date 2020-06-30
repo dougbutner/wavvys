@@ -26,13 +26,13 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 Both Douglas and Karelia make the selections. 
 
 
-## Affiliations
+## Organization
 The Wavvys are produced by [cXc Music](https://music.cxc.world), an application by [Current X Change LLC](https://currentxchange.com).
 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzk3NDI2NjMsLTIwMzc3MzA5OTIsMT
+eyJoaXN0b3J5IjpbLTE0NTU2NjA0MDcsLTIwMzc3MzA5OTIsMT
 M2MDM5NjYzMiw2NTI0NzQwMDgsLTUxNzE0ODA2MywyNzU4NzIz
 ODNdfQ==
 -->
