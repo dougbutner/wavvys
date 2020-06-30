@@ -12,10 +12,10 @@ We select one winner in four categories: Music Video, Single, Live Performance, 
 After a 15-week weekly run, Wavvys have been changed to monthly awards. 
 
 ## Team
-The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by Douglas and [Karelia Blum](https://instag)
+The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [Karelia Blum](https://instagram.com/the_blum_universe). Both Douglas and Karelia make the winner selections, sometimes asking for 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2OTM4NzU2MTQsLTUxNzE0ODA2MywyNz
-U4NzIzODNdfQ==
+eyJoaXN0b3J5IjpbMTExNDk3MzAxOSwtNTE3MTQ4MDYzLDI3NT
+g3MjM4M119
 -->
