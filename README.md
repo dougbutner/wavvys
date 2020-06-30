@@ -1,10 +1,8 @@
 # Wavvy Music Accolades
-The Wavvy Music Accolades recognize amazing music with under 100k plays. 
+The Wavvy Music Accolades recognizes amazing music with under 100k plays. 
 
-We look for music that 
+We look for music that displays creative authenticity
 
-- All music must have <100k views. 
-- W
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjc1ODcyMzgzXX0=
+eyJoaXN0b3J5IjpbLTE3MjY3MzQwMDUsMjc1ODcyMzgzXX0=
 -->
