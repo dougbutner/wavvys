@@ -24,7 +24,11 @@ After a 15-week weekly run, Wavvys have been changed to monthly awards starting 
 The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [Karelia Blum](https://instagram.com/the_blum_universe). 
 
 Both Douglas and Karelia make the selections. 
+
+
+## Sponsors
+The Wavvys are put on 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM2MDM5NjYzMiw2NTI0NzQwMDgsLTUxNz
-E0ODA2MywyNzU4NzIzODNdfQ==
+eyJoaXN0b3J5IjpbLTIwMzc3MzA5OTIsMTM2MDM5NjYzMiw2NT
+I0NzQwMDgsLTUxNzE0ODA2MywyNzU4NzIzODNdfQ==
 -->
