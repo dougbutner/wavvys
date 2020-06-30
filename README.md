@@ -11,7 +11,7 @@ On [Youtube](https://www.youtube.com/watch?v=FCF4niA8KUU&list=PLrr_9HPPROScrc1wx
 
 or [Medium](https://medium.com/wavvys)
 
-or Hive
+or [Hive](https://hive.blog/created/wavvys)
 
 or Steemit
 
@@ -27,6 +27,6 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMwOTgwMzMzNyw2NTI0NzQwMDgsLTUxNz
+eyJoaXN0b3J5IjpbMjAxMTU3OTE3MSw2NTI0NzQwMDgsLTUxNz
 E0ODA2MywyNzU4NzIzODNdfQ==
 -->
