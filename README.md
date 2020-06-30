@@ -18,13 +18,13 @@ or **[Hive](https://hive.blog/created/wavvys)** / **[Steemit](https://steemit.co
 We select one winner in four categories: Music Video, Single, Live Performance, and Album
 
 ## Schedule
-After a 15-week weekly run, Wavvys have been changed to monthly awards. 
+After a 15-week weekly run, Wavvys have been changed to monthly awards starting July 2020. The WMAs are released at the beginning of each month recognizing the month previous. 
 
 ## Team
 The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [Karelia Blum](https://instagram.com/the_blum_universe). 
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NzMzNTg0NjAsNjUyNDc0MDA4LC01MT
-cxNDgwNjMsMjc1ODcyMzgzXX0=
+eyJoaXN0b3J5IjpbMTM2MDM5NjYzMiw2NTI0NzQwMDgsLTUxNz
+E0ODA2MywyNzU4NzIzODNdfQ==
 -->
