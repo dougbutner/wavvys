@@ -7,6 +7,13 @@ Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to wi
 
 ## Watch the Wavvys
 
+On Youtube
+
+or Medium
+
+or Hive
+
+or Steemit
 
 
 ## Format
@@ -20,6 +27,6 @@ The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [K
 
 Both Douglas and Karelia make the selections. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEzNTk1ODUwLC01MTcxNDgwNjMsMjc1OD
-cyMzgzXX0=
+eyJoaXN0b3J5IjpbLTEzMzc0NzAyMTcsLTUxNzE0ODA2MywyNz
+U4NzIzODNdfQ==
 -->
