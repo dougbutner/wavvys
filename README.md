@@ -32,7 +32,7 @@ Follow the Wavvys on all of cXc Music's official channels:
 ### [Instagram](https://www.instagram.com/cxc.world/)
 ### [Twitter](https://twitter.com/currentxchange)
 ### [Youtube](https://www.youtube.com/channel/UCBjTUosp2R_FN6AFdHV-v-Q)
-### []()
+### [Facebook](https://www.facebook.com/currentxchange/)
 ### []()
 ### []()
 ### []()
@@ -45,7 +45,7 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYzOTA1Nzg0NCwtMTQ1NTY2MDQwNywtMj
-AzNzczMDk5MiwxMzYwMzk2NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4
-MDYzLDI3NTg3MjM4M119
+eyJoaXN0b3J5IjpbMzU5MDY0NTQsLTE0NTU2NjA0MDcsLTIwMz
+c3MzA5OTIsMTM2MDM5NjYzMiw2NTI0NzQwMDgsLTUxNzE0ODA2
+MywyNzU4NzIzODNdfQ==
 -->
