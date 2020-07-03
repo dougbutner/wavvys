@@ -29,14 +29,14 @@ Both Douglas and Karelia make the selections.
 ## Social
 Follow the Wavvys on all of cXc Music's official channels:
 
-[]()
-[](https://twitter.com/currentxchange)
-[]()
-[]()
-[]()
-[]()
-[]()
-[]()
+### []()
+### [Twitter](https://twitter.com/currentxchange)
+### []()
+### []()
+### []()
+### []()
+### []()
+### []()
 
 
 ## Organization
@@ -45,7 +45,7 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY1MzQ5NzI2LC0xNDU1NjYwNDA3LC0yMD
-M3NzMwOTkyLDEzNjAzOTY2MzIsNjUyNDc0MDA4LC01MTcxNDgw
-NjMsMjc1ODcyMzgzXX0=
+eyJoaXN0b3J5IjpbMTQ1NTkxNzk0NywtMTQ1NTY2MDQwNywtMj
+AzNzczMDk5MiwxMzYwMzk2NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4
+MDYzLDI3NTg3MjM4M119
 -->
