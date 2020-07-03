@@ -36,7 +36,7 @@ Follow the Wavvys on all of cXc Music's official channels:
 ### [Peakd](https://peakd.com/@currentxchange)
 ### [Hive](https://hive.blog/@currentxchange)
 ### [Steemit](https://steemit.com/@currentxchange)
-### [Discord]()
+### [Discord](https://discordapp.com/invite/6HXxA8g)
 
 
 ## Organization
@@ -45,7 +45,7 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk1OTk4MzA1OSwtMTQ1NTY2MDQwNywtMj
+eyJoaXN0b3J5IjpbMTE4NjgxMzE4NywtMTQ1NTY2MDQwNywtMj
 AzNzczMDk5MiwxMzYwMzk2NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4
 MDYzLDI3NTg3MjM4M119
 -->
