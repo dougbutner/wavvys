@@ -110,7 +110,7 @@ First and foremost, we have selected the Wax blockchain to run the next version 
 
 We are also working to launch a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also limited tradable copies they can sell to fans. 
 
-Finally, We have powered up over 3,000 HP to upvote music on Hive. We will be upvoting all original music posts in our World of Music community. You can easily share your music you already posted on cXc Music to your Hive blog with just a click, then 
+Finally, We have powered up over 3,000 HP to upvote music on Hive. We will be upvoting all original music posts in our World of Music community. You can easily share your music you already posted on cXc Music to your Hive blog with just a click, then you can crosspost the music onto the World of Music community on Peakd.com or hive.blog.
 
 
 <hr>
@@ -137,8 +137,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1OTUwMzIwOCwyMzU2NTE4NjAsLTc0OT
-kxMTc4OCwtNzM3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0MDg2MjIz
-LC0xNDc0NDc2ODA1LC0xMTkwODY0OTgyLC0xNjcyMjM0ODI2LD
-E5NTE4OTA2NTVdfQ==
+eyJoaXN0b3J5IjpbLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIzNT
+Y1MTg2MCwtNzQ5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1NDUx
+LDEwMzQwODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLT
+E2NzIyMzQ4MjYsMTk1MTg5MDY1NV19
 -->
