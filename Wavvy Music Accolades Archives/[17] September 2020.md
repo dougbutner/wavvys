@@ -67,7 +67,7 @@
 *See this track on our [music map 🗺️]()*
 </center>
 
-Easy Freak's brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. After watching this, be sure to check out the rest of their work, and slip some tracks in at your next small gathering. Easy freak is one of those bands that's just easy to vibe with 
+Easy Freak's brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. The drummer also comes in with some lovely soulful vocal fills.  After watching this, be sure to check out the rest of their work, and slip some tracks in at your next small gathering. Easy freak is one of those bands that's just easy to vibe with 
 
 🕵 Discovered with  views,  likes on Youtube
 
@@ -127,7 +127,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjIwNzc1NDUxLDEwMzQwODYyMjMsLTE0Nz
-Q0NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIyMzQ4MjYsMTk1MTg5
-MDY1NV19
+eyJoaXN0b3J5IjpbLTE4NzkyMTU4NDksMjIwNzc1NDUxLDEwMz
+QwODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIy
+MzQ4MjYsMTk1MTg5MDY1NV19
 -->
