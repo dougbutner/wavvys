@@ -108,7 +108,7 @@ We've had a lot of exciting seeds start to sprout in the last few weeks.
 
 First and foremost, we have selected the Wax blockchain to run the next version of cXc Music. Once this launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. 
 
-We are also working to launch a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique NFT detailing their win, and also copies they cn sell 
+We are also working to launch a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also limited tradable copies they can sell to fans. 
 
 We have powered up over 3,000 HP to upvote mus
 
@@ -137,8 +137,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3OTg2OTQ3NDYsLTc0OTkxMTc4OCwtNz
-M3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2
-ODA1LC0xMTkwODY0OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NT
-VdfQ==
+eyJoaXN0b3J5IjpbMjM1NjUxODYwLC03NDk5MTE3ODgsLTczNz
+k1MjkyOSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3NDQ3Njgw
+NSwtMTE5MDg2NDk4MiwtMTY3MjIzNDgyNiwxOTUxODkwNjU1XX
+0=
 -->
