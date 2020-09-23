@@ -65,9 +65,9 @@
 ## [Easy Freak - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
 📍 
 *See this track on our [music map 🗺️]()*
-
 </center>
 
+Easy Freak's brings us a carefree summer vibe in this live performance of their EP More Love. The band jams as one unit, w
 
 🕵 Discovered with  views,  likes on Youtube
 
@@ -127,7 +127,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2OTEyMDc3MTksMTAzNDA4NjIyMywtMT
+eyJoaXN0b3J5IjpbLTE3MjA0NTgyNzIsMTAzNDA4NjIyMywtMT
 Q3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3MjIzNDgyNiwxOTUx
 ODkwNjU1XX0=
 -->
