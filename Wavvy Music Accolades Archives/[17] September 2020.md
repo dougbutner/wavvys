@@ -44,8 +44,7 @@
 *See this track on our [music map 🗺️]()*
 
 
-This is a well rounded sound that re
-This song has all the makings of a smash hit. A great concept and lyrics, powerful vocals, and all the instruments and backing vocals to fill out an incredible track. 
+This is a well rounded sound that reminds me of the power ballads of the 80s. It's full of bright sound, expansive emotion, and colorful  A great concept and lyrics, powerful vocals, and all the instruments and backing vocals to fill out an incredible track. 
 
 </center>
 
@@ -139,8 +138,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODIxMTQxMTc4LC02MzM5ODEyNjcsLTE1OT
-UwMzIwOCwyMzU2NTE4NjAsLTc0OTkxMTc4OCwtNzM3OTUyOTI5
-LDIyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMT
-kwODY0OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NTVdfQ==
+eyJoaXN0b3J5IjpbLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0xNT
+k1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3ODgsLTczNzk1Mjky
+OSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3NDQ3NjgwNSwtMT
+E5MDg2NDk4MiwtMTY3MjIzNDgyNiwxOTUxODkwNjU1XX0=
 -->
