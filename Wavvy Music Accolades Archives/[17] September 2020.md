@@ -43,7 +43,7 @@
 📍 New Haven, Connecticut, USA
 *See this track on our [music map 🗺️]()*
 
-
+This song has all the makings of a smash hit. A great concept and lyrics, powerful vocals, and all the instruments and backing vocals to fill out an incredible track. 
 
 </center>
 
@@ -90,6 +90,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 
 
 
+
 🕵 Discovered with  views,  likes on Youtube
 
 🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
@@ -127,7 +128,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzND
-A4NjIyMywtMTQ3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3MjIz
-NDgyNiwxOTUxODkwNjU1XX0=
+eyJoaXN0b3J5IjpbMTI3MTYzNDA3MCwtNzM3OTUyOTI5LDIyMD
+c3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMTkwODY0
+OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NTVdfQ==
 -->
