@@ -104,6 +104,11 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 # <center>📰 News Section </center>
 ## *Headline:*
 
+We've had a lot of exciting seeds start to sprout in the last few weeks. 
+
+For one, we have selected the Wax blockchain to run the next version of cXc Music. Once this launches, you 
+
+
 <hr>
 
 # <center>ℹ️ About the Wavvy Music Accolades🕺 🌊 </center>
@@ -128,7 +133,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI3MTYzNDA3MCwtNzM3OTUyOTI5LDIyMD
-c3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMTkwODY0
-OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NTVdfQ==
+eyJoaXN0b3J5IjpbNzQwMzUwMDA4LC03Mzc5NTI5MjksMjIwNz
+c1NDUxLDEwMzQwODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5
+ODIsLTE2NzIyMzQ4MjYsMTk1MTg5MDY1NV19
 -->
