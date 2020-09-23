@@ -102,13 +102,15 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 
 
 # <center>📰 News Section </center>
-## *Headline:*
+## *Headline:* Moving On-Chain
 
 We've had a lot of exciting seeds start to sprout in the last few weeks. 
 
-For one, we have selected the Wax blockchain to run the next version of cXc Music. Once this launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. 
+In the , we have selected the Wax blockchain to run the next version of cXc Music. Once this launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. 
 
-Another thing, we 
+We are also planning to 
+
+We have powered up over 3,000 HP to upvote mus
 
 
 <hr>
@@ -135,7 +137,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA3ODgyNDI1NSwtNzM3OTUyOTI5LDIyMD
-c3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMTkwODY0
-OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NTVdfQ==
+eyJoaXN0b3J5IjpbLTE3MzgyODM2NDYsLTczNzk1MjkyOSwyMj
+A3NzU0NTEsMTAzNDA4NjIyMywtMTQ3NDQ3NjgwNSwtMTE5MDg2
+NDk4MiwtMTY3MjIzNDgyNiwxOTUxODkwNjU1XX0=
 -->
