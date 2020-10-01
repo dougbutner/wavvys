@@ -4,7 +4,7 @@
 
 <hr>
 
-Welcome to the September edition of the Wavvy Music Accolades, where we recognize incredible music from around the world with under 100,000 plays. The Wavvys are part of cxc.world, an online map of music any artist can contribute to, and fans can support their favorite artists with just a click. 
+Welcome to the September edition of the Wavvy Music Accolades, where we recognize incredible music from around the world with under 100,000 plays. The Wavvys are held by cxc.world, an online map of music any artist can contribute to, and any fans can gift exposure to artists they love with just a click. 
 
 
 
@@ -142,7 +142,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MjQ5MTc1MjMsLTUxOTY0Mzc2NSwtNj
+eyJoaXN0b3J5IjpbLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNj
 MzOTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3
 ODgsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMT
 Q3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3MjIzNDgyNiwxOTUx
