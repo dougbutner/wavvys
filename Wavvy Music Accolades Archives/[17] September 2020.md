@@ -23,10 +23,12 @@ Welcome to the September edition of the Wavvy Music Accolades, where we recogniz
 
 
 
-## [](https://www.youtube.com/watch?v=FnOAvLPTclw)
+## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw)
 📍 
 *See this track on our [music map 🗺️]()*
 </center>
+
+This track spreads a message we collectively need to hear right now. All the lines separating us are made up. They aren't real, and we don't have to follow them. The music vidoe features, wel
 
 
 
@@ -142,9 +144,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLT
-UxOTY0Mzc2NSwtNjMzOTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUx
-ODYwLC03NDk5MTE3ODgsLTczNzk1MjkyOSwyMjA3NzU0NTEsMT
-AzNDA4NjIyMywtMTQ3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3
-MjIzNDgyNiwxOTUxODkwNjU1XX0=
+eyJoaXN0b3J5IjpbMTk5ODg3MDcyMiwtMTkwNTk5MTA4MiwtMT
+Q0NDk3NDEzNiwtNTE5NjQzNzY1LC02MzM5ODEyNjcsLTE1OTUw
+MzIwOCwyMzU2NTE4NjAsLTc0OTkxMTc4OCwtNzM3OTUyOTI5LD
+IyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMTkw
+ODY0OTgyLC0xNjcyMjM0ODI2LDE5NTE4OTA2NTVdfQ==
 -->
