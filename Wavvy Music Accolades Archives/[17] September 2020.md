@@ -4,6 +4,8 @@
 
 <hr>
 
+Welcome to the September ediof the Wavvy Music Accolades. Read more about the changes from the weekly format in the News section below. But first, let's get to the music!!
+
 # Watch the winning music playlist here, presented by [Douglas](https://douglas.life)
 
 
@@ -138,8 +140,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0xNT
-k1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3ODgsLTczNzk1Mjky
-OSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3NDQ3NjgwNSwtMT
-E5MDg2NDk4MiwtMTY3MjIzNDgyNiwxOTUxODkwNjU1XX0=
+eyJoaXN0b3J5IjpbMTUxNDMzNzI4NCwtNTE5NjQzNzY1LC02Mz
+M5ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4NjAsLTc0OTkxMTc4
+OCwtNzM3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xND
+c0NDc2ODA1LC0xMTkwODY0OTgyLC0xNjcyMjM0ODI2LDE5NTE4
+OTA2NTVdfQ==
 -->
