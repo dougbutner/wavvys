@@ -40,7 +40,7 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
 
-🔗 Find  on: []()
+🔗 Find Keo on: [keology.com](https://www.keology.com/)
 
 <hr>
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5ODYyMDEyMDgsMTQxMjk1NDA0LDE5MT
-QwMDA3NjUsMzExMTM1NjE1LC0yODIxODE1ODIsLTEyNjEyMzk5
-MTcsLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAzMDkxMTEsLT
-c3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5NiwtMjAzODkx
-Nzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLTE5MDU5OTEwOD
-IsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0x
-NTk1MDMyMDhdfQ==
+eyJoaXN0b3J5IjpbNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MT
+I5NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgy
+LC0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMj
+IwMzA5MTExLC03Nzc0NzgxMjksLTEyMTMwNjI2OTAsMjM2MzAx
+OTYsLTIwMzg5MTc4OTgsLTEyOTk4NDg1NywyMDIzNjYwMTg1LC
+0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2NDM3NjUsLTYz
+Mzk4MTI2N119
 -->
