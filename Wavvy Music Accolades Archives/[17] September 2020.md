@@ -93,7 +93,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 #  <center>**Album**</center>
 
 
-## []()
+## [](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
 📍 
 *See this track on our [music map 🗺️]()*
  
@@ -148,10 +148,10 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyOTk4NDg1NywyMDIzNjYwMTg1LC0xOT
-A1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2NDM3NjUsLTYzMzk4
-MTI2NywtMTU5NTAzMjA4LDIzNTY1MTg2MCwtNzQ5OTExNzg4LC
-03Mzc5NTI5MjksMjIwNzc1NDUxLDEwMzQwODYyMjMsLTE0NzQ0
-NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIyMzQ4MjYsMTk1MTg5MD
-Y1NV19
+eyJoaXN0b3J5IjpbMjExNDEzMjc3MywtMTI5OTg0ODU3LDIwMj
+M2NjAxODUsLTE5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLTUxOTY0
+Mzc2NSwtNjMzOTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC
+03NDk5MTE3ODgsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzNDA4
+NjIyMywtMTQ3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3MjIzND
+gyNiwxOTUxODkwNjU1XX0=
 -->
