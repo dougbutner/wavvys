@@ -63,13 +63,11 @@ We found this one organically on the map, and it's a wonderful example of why we
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Apple Music](https://music.apple.com/us/album/in-surround-sound-single/1476433707)
+🎧 Listen on [Spotify](https://open.spotify.com/album/64CZzorKFSPha3Rz6GS9pB?highlight=spotify:track:1JeO8ouYOF8nLDjsOZtPRC) ~ [Youtube](https://www.youtube.com/watch?v=oq8PyNVJ2Z4&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q) ~ [Apple Music](https://music.apple.com/us/album/in-surround-sound-single/1476433707)
 
 
 💫 Connect on [Instagram](https://www.instagram.com/punchbowlastronauts/) ~ [Facebook](https://www.facebook.com/punchbowlastronauts) ~ [Twitter](https://twitter.com/punchbowlastros)
 
-
-🔗 Find  on: []()
 
 <hr>
 
@@ -149,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQxMjk1NDA0LDE5MTQwMDA3NjUsMzExMT
-M1NjE1LC0yODIxODE1ODIsLTEyNjEyMzk5MTcsLTE5Mzg5Njk1
-MzEsLTI0ODA3NzcyMCwyMjAzMDkxMTEsLTc3NzQ3ODEyOSwtMT
-IxMzA2MjY5MCwyMzYzMDE5NiwtMjAzODkxNzg5OCwtMTI5OTg0
-ODU3LDIwMjM2NjAxODUsLTE5MDU5OTEwODIsLTE0NDQ5NzQxMz
-YsLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0xNTk1MDMyMDgsMjM1
-NjUxODYwXX0=
+eyJoaXN0b3J5IjpbLTE5ODYyMDEyMDgsMTQxMjk1NDA0LDE5MT
+QwMDA3NjUsMzExMTM1NjE1LC0yODIxODE1ODIsLTEyNjEyMzk5
+MTcsLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAzMDkxMTEsLT
+c3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5NiwtMjAzODkx
+Nzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLTE5MDU5OTEwOD
+IsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0x
+NTk1MDMyMDhdfQ==
 -->
