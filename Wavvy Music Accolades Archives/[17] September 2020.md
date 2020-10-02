@@ -104,7 +104,7 @@ With influences from all over the map, creative samples and
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1) ~ [Soundcloud]()
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
 
@@ -148,10 +148,10 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzg5MTc4OTgsLTEyOTk4NDg1NywyMD
-IzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2
-NDM3NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIzNTY1MTg2MC
-wtNzQ5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1NDUxLDEwMzQw
-ODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIyMz
-Q4MjYsMTk1MTg5MDY1NV19
+eyJoaXN0b3J5IjpbMjM2MzAxOTYsLTIwMzg5MTc4OTgsLTEyOT
+k4NDg1NywyMDIzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0
+MTM2LC01MTk2NDM3NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LD
+IzNTY1MTg2MCwtNzQ5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1
+NDUxLDEwMzQwODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5OD
+IsLTE2NzIyMzQ4MjYsMTk1MTg5MDY1NV19
 -->
