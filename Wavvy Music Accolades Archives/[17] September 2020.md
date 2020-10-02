@@ -63,7 +63,7 @@ We found this one organically on the map, and it's a wonderful example of why we
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube]() ~ [App]()
 
 
 💫 Connect on [Instagram]() ~ [Facebook](https://www.facebook.com/punchbowlastronauts) ~ [Twitter](https://twitter.com/punchbowlastros)
@@ -149,11 +149,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4Mj
-E4MTU4MiwtMTI2MTIzOTkxNywtMTkzODk2OTUzMSwtMjQ4MDc3
-NzIwLDIyMDMwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLD
-IzNjMwMTk2LC0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMjAyMzY2
-MDE4NSwtMTkwNTk5MTA4MiwtMTQ0NDk3NDEzNiwtNTE5NjQzNz
-Y1LC02MzM5ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4NjAsLTc0
-OTkxMTc4OF19
+eyJoaXN0b3J5IjpbLTI1OTE2MjgyOCwxOTE0MDAwNzY1LDMxMT
+EzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC0xOTM4OTY5
+NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0NzgxMjksLT
+EyMTMwNjI2OTAsMjM2MzAxOTYsLTIwMzg5MTc4OTgsLTEyOTk4
+NDg1NywyMDIzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MT
+M2LC01MTk2NDM3NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIz
+NTY1MTg2MF19
 -->
