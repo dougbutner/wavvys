@@ -34,7 +34,7 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 
 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered with 11,493 views, 70 likes on Youtube
 
 🎧 Listen on [Spotify](https://open.spotify.com/album/3X1bQyGJDnofEjaig3oty7?highlight=spotify:track:2WCUGn5E5xJZM97BhbpTlf) ~ [Youtube](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q&index=2) ~ [Apple Music](https://music.apple.com/co/artist/keo-nozari/79435657?uo=4&app=music)
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MT
-c3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2
-NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIzOTkxNywtMT
-kzODk2OTUzMSwtMjQ4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4
-MTI5LC0xMjEzMDYyNjkwLDIzNjMwMTk2LC0yMDM4OTE3ODk4LC
-0xMjk5ODQ4NTcsMjAyMzY2MDE4NSwtMTkwNTk5MTA4MiwtMTQ0
-NDk3NDEzNl19
+eyJoaXN0b3J5IjpbLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMD
+c0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0
+MDQsMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMT
+I2MTIzOTkxNywtMTkzODk2OTUzMSwtMjQ4MDc3NzIwLDIyMDMw
+OTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLDIzNjMwMTk2LC
+0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMjAyMzY2MDE4NSwtMTkw
+NTk5MTA4Ml19
 -->
