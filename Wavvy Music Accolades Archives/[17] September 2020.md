@@ -23,7 +23,7 @@ Welcome to the September edition of the Wavvy Music Accolades, where we recogniz
 
 
 
-## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw)
+## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q&index=2)
 📍 
 *See this track on our [music map 🗺️]()*
 </center>
@@ -36,7 +36,7 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/album/3X1bQyGJDnofEjaig3oty7?highlight=spotify:track:2WCUGn5E5xJZM97BhbpTlf) ~ [Youtube]() ~ [Soundcloud]()
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MT
-I5NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgy
-LC0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMj
-IwMzA5MTExLC03Nzc0NzgxMjksLTEyMTMwNjI2OTAsMjM2MzAx
-OTYsLTIwMzg5MTc4OTgsLTEyOTk4NDg1NywyMDIzNjYwMTg1LC
-0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2NDM3NjUsLTYz
-Mzk4MTI2N119
+eyJoaXN0b3J5IjpbLTE5ODI4MzE0OTYsNDUxNzcwODQ0LC0xOT
+g2MjAxMjA4LDE0MTI5NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYx
+NSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC
+0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0NzgxMjksLTEyMTMw
+NjI2OTAsMjM2MzAxOTYsLTIwMzg5MTc4OTgsLTEyOTk4NDg1Ny
+wyMDIzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01
+MTk2NDM3NjVdfQ==
 -->
