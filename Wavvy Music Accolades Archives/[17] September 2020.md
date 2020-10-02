@@ -94,7 +94,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 
 
 ## [The Garden of Zen EP](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
-📍 
+📍 Melbourne, Australia 
 *See this track on our [music map 🗺️]()*
  
 </center>
@@ -104,7 +104,7 @@ All the proceeds from sales will go toward providing support to those struggling
 
 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered with ~25 views, 2 likes on Youtube (more on other platforms)
 
 🎧 Listen on [Spotify](https://open.spotify.com/album/0AhaI1hZmwaE316kDuzdak) ~ [Youtube](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1) ~ [Bandcamp](https://jonnyfaith.bandcamp.com/album/garden-of-zen-ep)
 
@@ -150,11 +150,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIzMTA0NzMxNiwtMjQ4MDc3NzIwLDIyMD
-MwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLDIzNjMwMTk2
-LC0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMjAyMzY2MDE4NSwtMT
-kwNTk5MTA4MiwtMTQ0NDk3NDEzNiwtNTE5NjQzNzY1LC02MzM5
-ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4NjAsLTc0OTkxMTc4OC
-wtNzM3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0
-NDc2ODA1XX0=
+eyJoaXN0b3J5IjpbLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMj
+AzMDkxMTEsLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5
+NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLT
+E5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMz
+OTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3OD
+gsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3
+NDQ3NjgwNV19
 -->
