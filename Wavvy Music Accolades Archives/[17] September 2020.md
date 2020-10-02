@@ -54,7 +54,7 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 
 This is a well rounded sound that reminds me of the power ballads of the 80s. It's full of bright sound, expansive emotion, and colorful textures. 
 
-A great concept and lyrics, powerful vocals, and all the instruments and backing vocals to fill out an incredible track. 
+A great concept and lyrics, powerful vocals, and all the instruments and backing vocals come together to fill out an incredible track. 
 
 </center>
 
@@ -148,7 +148,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMxMDg0ODA5OSwyMDIzNjYwMTg1LC0xOT
+eyJoaXN0b3J5IjpbLTEyOTk4NDg1NywyMDIzNjYwMTg1LC0xOT
 A1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2NDM3NjUsLTYzMzk4
 MTI2NywtMTU5NTAzMjA4LDIzNTY1MTg2MCwtNzQ5OTExNzg4LC
 03Mzc5NTI5MjksMjIwNzc1NDUxLDEwMzQwODYyMjMsLTE0NzQ0
