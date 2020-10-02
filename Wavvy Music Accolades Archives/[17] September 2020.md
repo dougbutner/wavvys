@@ -56,7 +56,7 @@ This is a well rounded sound that reminds me of the power ballads of the 80s. It
 
 A great concept and lyrics, powerful vocals, and all the instruments and backing vocals come together to fill out an incredible track. 
 
-We found this one organically on the map, and it's such a good example of why we made cxc.world in the first place. 
+We found this one organically on the map, and it's a wonderful example of why we made cxc.world in the first place. 
 
 </center>
 
@@ -66,7 +66,7 @@ We found this one organically on the map, and it's such a good example of why we
 🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
 
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
+💫 Connect on [Instagram]() ~ [Facebook](https://www.facebook.com/punchbowlastronauts) ~ [Twitter](https://twitter.com/punchbowlastros)
 
 
 🔗 Find  on: []()
@@ -149,11 +149,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzExMTM1NjE1LC0yODIxODE1ODIsLTEyNj
-EyMzk5MTcsLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAzMDkx
-MTEsLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5NiwtMj
-AzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLTE5MDU5
-OTEwODIsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMzOTgxMj
-Y3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3ODgsLTcz
-Nzk1MjkyOV19
+eyJoaXN0b3J5IjpbMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4Mj
+E4MTU4MiwtMTI2MTIzOTkxNywtMTkzODk2OTUzMSwtMjQ4MDc3
+NzIwLDIyMDMwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLD
+IzNjMwMTk2LC0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMjAyMzY2
+MDE4NSwtMTkwNTk5MTA4MiwtMTQ0NDk3NDEzNiwtNTE5NjQzNz
+Y1LC02MzM5ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4NjAsLTc0
+OTkxMTc4OF19
 -->
