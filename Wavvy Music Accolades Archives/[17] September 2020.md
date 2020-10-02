@@ -98,15 +98,15 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 *See this track on our [music map 🗺️]()*
  
 </center>
-With influences from Japan, creative samples and beautiful instrumental melding, The Garden of Zen EP comes in tea-hot with relaxing mix of synths, instruments, and spa
+With influences from Japan, creative samples and beautiful instrumental melding, The Garden of Zen EP comes in tea-hot with relaxing mix of synths, instruments, and sparse, well placed samples. All the proceeds from sales will go toward providing support to those stru
 
 
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify](https://open.spotify.com/album/0AhaI1hZmwaE316kDuzdak) ~ [Youtube](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
+🎧 Listen on [Spotify](https://open.spotify.com/album/0AhaI1hZmwaE316kDuzdak) ~ [Youtube](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1) ~ [Bandcamp](https://jonnyfaith.bandcamp.com/album/garden-of-zen-ep)
 
-💫 Connect on [Instagram](https://www.instagram.com/jonnyfaith/) ~ [Facebook](https://www.facebook.com/jonnyfaith) ~ [Twitter]()
+💫 Connect on [Instagram](https://www.instagram.com/jonnyfaith/) ~ [Facebook](https://www.facebook.com/jonnyfaith) 
 
 🔗 Find Jonny Faith on: [jonnyfaith.com](https://jonnyfaith.com/)
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODc2NzM5MDYzLDIyMDMwOTExMSwtNzc3ND
-c4MTI5LC0xMjEzMDYyNjkwLDIzNjMwMTk2LC0yMDM4OTE3ODk4
-LC0xMjk5ODQ4NTcsMjAyMzY2MDE4NSwtMTkwNTk5MTA4MiwtMT
-Q0NDk3NDEzNiwtNTE5NjQzNzY1LC02MzM5ODEyNjcsLTE1OTUw
-MzIwOCwyMzU2NTE4NjAsLTc0OTkxMTc4OCwtNzM3OTUyOTI5LD
-IyMDc3NTQ1MSwxMDM0MDg2MjIzLC0xNDc0NDc2ODA1LC0xMTkw
-ODY0OTgyXX0=
+eyJoaXN0b3J5IjpbMTgwMzEyNDk1NSwyMjAzMDkxMTEsLTc3Nz
+Q3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5NiwtMjAzODkxNzg5
+OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLTE5MDU5OTEwODIsLT
+E0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMzOTgxMjY3LC0xNTk1
+MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3ODgsLTczNzk1MjkyOS
+wyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3NDQ3NjgwNSwtMTE5
+MDg2NDk4Ml19
 -->
