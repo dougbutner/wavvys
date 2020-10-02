@@ -82,7 +82,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 
 🕵 Discovered with 1,382 views, 94 likes on Youtube
 
-🎧 Listen on [Spotify](https://open.spotify.com/album/5H4L6KdjfvjywJEaKayoNV) ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/album/5H4L6KdjfvjywJEaKayoNV) ~ [Youtube](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q) ~ [Apple Music](https://music.apple.com/co/album/more-love-ep/1529308648?uo=4&app=music&ct=FFM_c4b4f0ceae36eacd12ef3a8163e8e9a5&at=1001laMC)
 
 💫 Connect on [Instagram](https://www.instagram.com/easyfreakmusic/) ~ [Facebook](https://www.facebook.com/easyfreakmusic/) ~ [Twitter](https://twitter.com/easyfreakmusic/)
 <hr>
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ2ODk4NjA4NSwtMTkzODk2OTUzMSwtMj
-Q4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYy
-NjkwLDIzNjMwMTk2LC0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMj
-AyMzY2MDE4NSwtMTkwNTk5MTA4MiwtMTQ0NDk3NDEzNiwtNTE5
-NjQzNzY1LC02MzM5ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4Nj
-AsLTc0OTkxMTc4OCwtNzM3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0
-MDg2MjIzXX0=
+eyJoaXN0b3J5IjpbLTEyNjEyMzk5MTcsLTE5Mzg5Njk1MzEsLT
+I0ODA3NzcyMCwyMjAzMDkxMTEsLTc3NzQ3ODEyOSwtMTIxMzA2
+MjY5MCwyMzYzMDE5NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LD
+IwMjM2NjAxODUsLTE5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLTUx
+OTY0Mzc2NSwtNjMzOTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxOD
+YwLC03NDk5MTE3ODgsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAz
+NDA4NjIyM119
 -->
