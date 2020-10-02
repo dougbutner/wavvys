@@ -93,12 +93,12 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 #  <center>**Album**</center>
 
 
-## [](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
+## [The Garden of Zen EP](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
 📍 
 *See this track on our [music map 🗺️]()*
  
 </center>
-With influences from all over the map, creative samples and 
+With influences from Japan, creative samples and beautiful instrumental melding, The Garden of Zen EP comes in hot with 
 
 
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMz
-YzMDE5NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAx
-ODUsLTE5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NS
-wtNjMzOTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC03NDk5
-MTE3ODgsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzNDA4NjIyMy
-wtMTQ3NDQ3NjgwNSwtMTE5MDg2NDk4MiwtMTY3MjIzNDgyNiwx
-OTUxODkwNjU1XX0=
+eyJoaXN0b3J5IjpbMjIwMzA5MTExLC03Nzc0NzgxMjksLTEyMT
+MwNjI2OTAsMjM2MzAxOTYsLTIwMzg5MTc4OTgsLTEyOTk4NDg1
+NywyMDIzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC
+01MTk2NDM3NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIzNTY1
+MTg2MCwtNzQ5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1NDUxLD
+EwMzQwODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLTE2
+NzIyMzQ4MjZdfQ==
 -->
