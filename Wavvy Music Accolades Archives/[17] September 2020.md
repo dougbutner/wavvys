@@ -80,14 +80,11 @@ A great concept and lyrics, powerful vocals, and all the instruments and backing
 
 Easy Freak's brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. The drummer also comes in with some lovely soulful vocal fills, giving us two distinct vibes in one performance. Easy freak is one of those bands that's just easy to vibe with. 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered with 1,382 views, 94 likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/album/5H4L6KdjfvjywJEaKayoNV) ~ [Youtube]() ~ [Soundcloud]()
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
-
-🔗 Find  on: []()
-
+💫 Connect on [Instagram](https://www.instagram.com/easyfreakmusic/) ~ [Facebook](https://www.facebook.com/easyfreakmusic/) ~ [Twitter](https://twitter.com/easyfreakmusic/)
 <hr>
 
 #  <center>**Album**</center>
@@ -150,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMj
-AzMDkxMTEsLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MCwyMzYzMDE5
-NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2NjAxODUsLT
-E5MDU5OTEwODIsLTE0NDQ5NzQxMzYsLTUxOTY0Mzc2NSwtNjMz
-OTgxMjY3LC0xNTk1MDMyMDgsMjM1NjUxODYwLC03NDk5MTE3OD
-gsLTczNzk1MjkyOSwyMjA3NzU0NTEsMTAzNDA4NjIyMywtMTQ3
-NDQ3NjgwNV19
+eyJoaXN0b3J5IjpbMTQ2ODk4NjA4NSwtMTkzODk2OTUzMSwtMj
+Q4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYy
+NjkwLDIzNjMwMTk2LC0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMj
+AyMzY2MDE4NSwtMTkwNTk5MTA4MiwtMTQ0NDk3NDEzNiwtNTE5
+NjQzNzY1LC02MzM5ODEyNjcsLTE1OTUwMzIwOCwyMzU2NTE4Nj
+AsLTc0OTkxMTc4OCwtNzM3OTUyOTI5LDIyMDc3NTQ1MSwxMDM0
+MDg2MjIzXX0=
 -->
