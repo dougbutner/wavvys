@@ -98,7 +98,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 *See this track on our [music map 🗺️]()*
  
 </center>
-With influences from all over the map, creative sa
+With influences from all over the map, creative samples and 
 
 
 
@@ -148,10 +148,10 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjU0NjAxNjgsLTEyOTk4NDg1NywyMDIzNj
-YwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2NDM3
-NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIzNTY1MTg2MCwtNz
-Q5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1NDUxLDEwMzQwODYy
-MjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIyMzQ4Mj
-YsMTk1MTg5MDY1NV19
+eyJoaXN0b3J5IjpbLTIwMzg5MTc4OTgsLTEyOTk4NDg1NywyMD
+IzNjYwMTg1LC0xOTA1OTkxMDgyLC0xNDQ0OTc0MTM2LC01MTk2
+NDM3NjUsLTYzMzk4MTI2NywtMTU5NTAzMjA4LDIzNTY1MTg2MC
+wtNzQ5OTExNzg4LC03Mzc5NTI5MjksMjIwNzc1NDUxLDEwMzQw
+ODYyMjMsLTE0NzQ0NzY4MDUsLTExOTA4NjQ5ODIsLTE2NzIyMz
+Q4MjYsMTk1MTg5MDY1NV19
 -->
