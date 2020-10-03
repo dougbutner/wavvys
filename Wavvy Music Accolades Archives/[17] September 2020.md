@@ -112,13 +112,14 @@ All the proceeds from sales will go toward providing support to those struggling
 
 
 # <center>📰 News Section </center>
-## *Headline:* Moving On-Chain
+## *Headline:* Wavvy NFTs Moving On-Chain
 
 We've had a lot of exciting seeds start to sprout in the last few weeks. 
 
-First and foremost, we have selected the Wax blockchain to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. You can also earn for correcting things like location and genre / Mood / Format information, and adding missing player links
+Starting with the Wavvys
+We are launching a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also limited tradable copies they can sell to fans. 
 
-We are also working to launch a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also limited tradable copies they can sell to fans. 
+In cxc.world news, we have selected the Wax blockchain to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. You can also earn for correcting things like location and genre / Mood / Format information, and adding missing player links.
 
 Finally, We have powered up over 3,000 HP to upvote music on Hive. We will be upvoting all original music posts in our World of Music community. You can easily share your music you already posted on cXc Music to your Hive blog with just a click, then you can crosspost the music onto the World of Music community on Peakd.com or hive.blog.
 
@@ -147,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA1Nzg5MDE4NCw2Mjk1OTg0NjYsLTE4OD
-Y2OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MTc3MDg0
-NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2NSwzMT
-ExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIzOTkxNywtMTkzODk2
-OTUzMSwtMjQ4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4MTI5LC
-0xMjEzMDYyNjkwLDIzNjMwMTk2LC0yMDM4OTE3ODk4LC0xMjk5
-ODQ4NTddfQ==
+eyJoaXN0b3J5IjpbLTEyNTk3OTc0NCwyMDU3ODkwMTg0LDYyOT
+U5ODQ2NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1
+MzMsNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOT
+E0MDAwNzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5
+OTE3LC0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC
+03Nzc0NzgxMjksLTEyMTMwNjI2OTAsMjM2MzAxOTYsLTIwMzg5
+MTc4OThdfQ==
 -->
