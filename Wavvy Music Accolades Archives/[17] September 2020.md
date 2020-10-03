@@ -112,7 +112,7 @@ All the proceeds from sales will go toward providing support to those struggling
 
 
 # <center>📰 News Section </center>
-## *Headline:* Wavvy NFTs Moving On-Chain
+## *Headline:* Wavvy NFTs a GO
 
 We've had a lot of exciting seeds start to sprout in the last few weeks. 
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU4ODM2NDk5NiwyMDU3ODkwMTg0LDYyOT
-U5ODQ2NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1
-MzMsNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOT
-E0MDAwNzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5
-OTE3LC0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC
-03Nzc0NzgxMjksLTEyMTMwNjI2OTAsMjM2MzAxOTYsLTIwMzg5
-MTc4OThdfQ==
+eyJoaXN0b3J5IjpbOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nz
+g5MDE4NCw2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0
+LC0xMDc0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxND
+EyOTU0MDQsMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4MTU4
+MiwtMTI2MTIzOTkxNywtMTkzODk2OTUzMSwtMjQ4MDc3NzIwLD
+IyMDMwOTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLDIzNjMw
+MTk2XX0=
 -->
