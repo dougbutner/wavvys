@@ -61,7 +61,7 @@ We found this one organically on the map, and it's a wonderful example of why we
 </center>
 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered o cXc Music with 920 views, 60 likes on Youtube
 
 🎧 Listen on [Spotify](https://open.spotify.com/album/64CZzorKFSPha3Rz6GS9pB?highlight=spotify:track:1JeO8ouYOF8nLDjsOZtPRC) ~ [Youtube](https://www.youtube.com/watch?v=oq8PyNVJ2Z4&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q) ~ [Apple Music](https://music.apple.com/us/album/in-surround-sound-single/1476433707)
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMD
-c0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0
-MDQsMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMT
-I2MTIzOTkxNywtMTkzODk2OTUzMSwtMjQ4MDc3NzIwLDIyMDMw
-OTExMSwtNzc3NDc4MTI5LC0xMjEzMDYyNjkwLDIzNjMwMTk2LC
-0yMDM4OTE3ODk4LC0xMjk5ODQ4NTcsMjAyMzY2MDE4NSwtMTkw
-NTk5MTA4Ml19
+eyJoaXN0b3J5IjpbNjI5NTk4NDY2LC0xODg2Njk3MDkzLDkxNj
+Y3MTA5NCwtMTA3NDc4MzUzMyw0NTE3NzA4NDQsLTE5ODYyMDEy
+MDgsMTQxMjk1NDA0LDE5MTQwMDA3NjUsMzExMTM1NjE1LC0yOD
+IxODE1ODIsLTEyNjEyMzk5MTcsLTE5Mzg5Njk1MzEsLTI0ODA3
+NzcyMCwyMjAzMDkxMTEsLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MC
+wyMzYzMDE5NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2
+NjAxODVdfQ==
 -->
