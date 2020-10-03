@@ -52,9 +52,9 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 *See this track on our [music map 🗺️]()*
 This is a well rounded sound that reminds me of the power ballads of the 80s. It's full of bright sound, expansive emotion, and colorful textures. 
 
-A great concept and lyrics, powerful vocals, and all the instruments and backing vocals come together to fill out an incredible track. 
+Relatable lyrics, powerful vocals, and all the instruments and backing vocals come together to fill out an incredible track. 
 
-We found this one organically on the map, and it's a wonderful example of why we made cxc.world in the first place. 
+We found this one organically on the map, and it's a wonderful example of why we made cxc.world in the first place, to showcase incredible underground sounds. 
 
 </center>
 
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEwNjg0NjUyMiwtMjA2MjIwMDY5MiwtOD
-Y3NzcxODIyLDkzNTY4MzI0MiwtNTg4MzY0OTk2LDIwNTc4OTAx
-ODQsNjI5NTk4NDY2LC0xODg2Njk3MDkzLDkxNjY3MTA5NCwtMT
-A3NDc4MzUzMyw0NTE3NzA4NDQsLTE5ODYyMDEyMDgsMTQxMjk1
-NDA0LDE5MTQwMDA3NjUsMzExMTM1NjE1LC0yODIxODE1ODIsLT
-EyNjEyMzk5MTcsLTE5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAz
-MDkxMTFdfQ==
+eyJoaXN0b3J5IjpbMzgzMTczODc3LDIxMDY4NDY1MjIsLTIwNj
+IyMDA2OTIsLTg2Nzc3MTgyMiw5MzU2ODMyNDIsLTU4ODM2NDk5
+NiwyMDU3ODkwMTg0LDYyOTU5ODQ2NiwtMTg4NjY5NzA5Myw5MT
+Y2NzEwOTQsLTEwNzQ3ODM1MzMsNDUxNzcwODQ0LC0xOTg2MjAx
+MjA4LDE0MTI5NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYxNSwtMj
+gyMTgxNTgyLC0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC0yNDgw
+Nzc3MjBdfQ==
 -->
