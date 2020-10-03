@@ -116,7 +116,7 @@ All the proceeds from sales will go toward providing support to those struggling
 
 We've had a lot of exciting seeds start to sprout in the last few weeks. 
 
-First and foremost, we have selected the Wax blockchain to run the next version of cXc Music. Once this launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. 
+First and foremost, we have selected the Wax blockchain to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will earn crypto when their songs get upvotes, and listeners will also get crypto for sending an upvote, and for adding music on the map, and other activities like suggesting corrections to music others have added. You can also earn for corresting things like 
 
 We are also working to launch a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also limited tradable copies they can sell to fans. 
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjI5NTk4NDY2LC0xODg2Njk3MDkzLDkxNj
-Y3MTA5NCwtMTA3NDc4MzUzMyw0NTE3NzA4NDQsLTE5ODYyMDEy
-MDgsMTQxMjk1NDA0LDE5MTQwMDA3NjUsMzExMTM1NjE1LC0yOD
-IxODE1ODIsLTEyNjEyMzk5MTcsLTE5Mzg5Njk1MzEsLTI0ODA3
-NzcyMCwyMjAzMDkxMTEsLTc3NzQ3ODEyOSwtMTIxMzA2MjY5MC
-wyMzYzMDE5NiwtMjAzODkxNzg5OCwtMTI5OTg0ODU3LDIwMjM2
-NjAxODVdfQ==
+eyJoaXN0b3J5IjpbMTk3MDU0NzI5LDYyOTU5ODQ2NiwtMTg4Nj
+Y5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1MzMsNDUxNzcwODQ0
+LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOTE0MDAwNzY1LDMxMT
+EzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC0xOTM4OTY5
+NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0NzgxMjksLT
+EyMTMwNjI2OTAsMjM2MzAxOTYsLTIwMzg5MTc4OTgsLTEyOTk4
+NDg1N119
 -->
