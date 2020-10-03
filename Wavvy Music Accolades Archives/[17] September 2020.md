@@ -30,7 +30,7 @@ Welcome to the September edition of the Wavvy Music Accolades, where we recogniz
 
 This track spreads a message we collectively need to hear right now. All the lines separating us are made up. They aren't real, and we don't have to, nor should we follow them. 
 
-The music video features psychedelic colors and, well, lines. It's an energetic and eclectic experience point us in the direction of collective consciousness experience, a reality many are tuning into every day.  
+The music video features psychedelic colors and, well, lines. It's an energetic and eclectic experience meant to point us in the direction of collective consciousness experience, a reality more and more are tuning into every day.  
 
 
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNjIyMDA2OTIsLTg2Nzc3MTgyMiw5Mz
-U2ODMyNDIsLTU4ODM2NDk5NiwyMDU3ODkwMTg0LDYyOTU5ODQ2
-NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1MzMsND
-UxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOTE0MDAw
-NzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC
-0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0
-NzgxMjldfQ==
+eyJoaXN0b3J5IjpbLTE5MzQxNjM2MTgsLTIwNjIyMDA2OTIsLT
+g2Nzc3MTgyMiw5MzU2ODMyNDIsLTU4ODM2NDk5NiwyMDU3ODkw
+MTg0LDYyOTU5ODQ2NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLT
+EwNzQ3ODM1MzMsNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5
+NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgyLC
+0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMjIw
+MzA5MTExXX0=
 -->
