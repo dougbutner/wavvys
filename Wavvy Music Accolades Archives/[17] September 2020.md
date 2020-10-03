@@ -95,7 +95,7 @@ Easy Freak brings us a carefree summer vibe in this live performance of their EP
 </center>
 Bringing peaceful vibes from Japan and beyond, the Garden of Zen EP comes in tea-hot with relaxing meld of synths, real instruments, and sparse, well placed samples. It's the type of music that is great to work to, or just relax. 
 
-All the proceeds from bandcamp purchases (and all other purchases) will go toward providing support to those struggling with mental health. 
+All the proceeds from Bandcamp purchases (and all other purchases) will go toward providing support to those struggling with mental health. 
 
 
 
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY0NDU0Nzk2LDM4MzE3Mzg3NywyMTA2OD
-Q2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4MjIsOTM1NjgzMjQy
-LC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1OTg0NjYsLTE4OD
-Y2OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MTc3MDg0
-NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2NSwzMT
-ExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIzOTkxNywtMTkzODk2
-OTUzMV19
+eyJoaXN0b3J5IjpbLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4Mz
+E3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4
+MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mj
+k1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0Nzgz
+NTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMT
+kxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIz
+OTkxN119
 -->
