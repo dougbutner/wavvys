@@ -95,7 +95,7 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 *See this track on our [music map 🗺️]()*
  
 </center>
-With influences from Japan, peaceful vibes and beautiful instrumental melding, The Garden of Zen EP comes in tea-hot with relaxing mix of synths, real instruments, and sparse, well placed samples. It's the type of music that is great to work to, or just relax. 
+Bringing peaceful vibes from Japan and beyond,  and beautiful instrumental melding, The Garden of Zen EP comes in tea-hot with relaxing meld of synths, real instruments, and sparse, well placed samples. It's the type of music that is great to work to, or just relax. 
 
 All the proceeds from sales will go toward providing support to those struggling with mental health. 
 
@@ -148,7 +148,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDcyODQ0OTQ3LC04Njc3NzE4MjIsOTM1Nj
+eyJoaXN0b3J5IjpbNzUwNzIzNDIxLC04Njc3NzE4MjIsOTM1Nj
 gzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1OTg0NjYs
 LTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MT
 c3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2
