@@ -78,7 +78,7 @@ We found this one organically on the map, and it's a wonderful example of why we
 *See this track on our [music map 🗺️]()*
 </center>
 
-Easy Freak's brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. The drummer also comes in with some lovely soulful vocal fills, giving us two distinct vibes in one performance.  There's also a really wild keyboard solo in there. Easy freak is one of those bands that's just easy to vibe with.
+Easy Freak brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. The drummer also comes in with some lovely soulful vocal fills, giving us two distinct vibes in one performance.  There's also a really wild keyboard solo in there. Easy freak is one of those bands that's just easy to vibe with.
 
 🕵 Discovered with 1,382 views, 94 likes on Youtube
 
@@ -95,9 +95,9 @@ Easy Freak's brings us a carefree summer vibe in this live performance of their 
 *See this track on our [music map 🗺️]()*
  
 </center>
-Bringing peaceful vibes from Japan and beyond,  and beautiful instrumental melding, The Garden of Zen EP comes in tea-hot with relaxing meld of synths, real instruments, and sparse, well placed samples. It's the type of music that is great to work to, or just relax. 
+Bringing peaceful vibes from Japan and beyond, the Garden of Zen EP comes in tea-hot with relaxing meld of synths, real instruments, and sparse, well placed samples. It's the type of music that is great to work to, or just relax. 
 
-All the proceeds from sales will go toward providing support to those struggling with mental health. 
+All the proceeds from bandcamp purchases (and all other purchases) will go toward providing support to those struggling with mental health. 
 
 
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzUwNzIzNDIxLC04Njc3NzE4MjIsOTM1Nj
-gzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1OTg0NjYs
-LTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MT
-c3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2
-NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIzOTkxNywtMT
-kzODk2OTUzMSwtMjQ4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4
-MTI5XX0=
+eyJoaXN0b3J5IjpbMTkyODQ1MTQzOCwtODY3NzcxODIyLDkzNT
+Y4MzI0MiwtNTg4MzY0OTk2LDIwNTc4OTAxODQsNjI5NTk4NDY2
+LC0xODg2Njk3MDkzLDkxNjY3MTA5NCwtMTA3NDc4MzUzMyw0NT
+E3NzA4NDQsLTE5ODYyMDEyMDgsMTQxMjk1NDA0LDE5MTQwMDA3
+NjUsMzExMTM1NjE1LC0yODIxODE1ODIsLTEyNjEyMzk5MTcsLT
+E5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAzMDkxMTEsLTc3NzQ3
+ODEyOV19
 -->
