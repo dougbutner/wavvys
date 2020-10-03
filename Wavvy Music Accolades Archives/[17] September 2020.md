@@ -142,17 +142,17 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🏆 NOMINATE any musical creation with less than 100k plays, by artists with <100k plays on average (so far).
 
-🥇WINNERS will be shared by cXc Music's official accounts, including a video, articles, and more. Winning tracks are recorded in an immutable record of great music. 
+🥇WINNERS receive a NFT trophy, an immutable record of great music. 
 
 🌊 Wavvy Music Accolades take place Monthly, with one winner in four categories: Music Video, Single, Live Performance, and Album.
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkyODQ1MTQzOCwtODY3NzcxODIyLDkzNT
-Y4MzI0MiwtNTg4MzY0OTk2LDIwNTc4OTAxODQsNjI5NTk4NDY2
-LC0xODg2Njk3MDkzLDkxNjY3MTA5NCwtMTA3NDc4MzUzMyw0NT
-E3NzA4NDQsLTE5ODYyMDEyMDgsMTQxMjk1NDA0LDE5MTQwMDA3
-NjUsMzExMTM1NjE1LC0yODIxODE1ODIsLTEyNjEyMzk5MTcsLT
-E5Mzg5Njk1MzEsLTI0ODA3NzcyMCwyMjAzMDkxMTEsLTc3NzQ3
-ODEyOV19
+eyJoaXN0b3J5IjpbLTIwNjIyMDA2OTIsLTg2Nzc3MTgyMiw5Mz
+U2ODMyNDIsLTU4ODM2NDk5NiwyMDU3ODkwMTg0LDYyOTU5ODQ2
+NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1MzMsND
+UxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOTE0MDAw
+NzY1LDMxMTEzNTYxNSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC
+0xOTM4OTY5NTMxLC0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0
+NzgxMjldfQ==
 -->
