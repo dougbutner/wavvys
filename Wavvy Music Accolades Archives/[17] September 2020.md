@@ -88,7 +88,7 @@ Easy Freak brings us a carefree summer vibe in this live performance of their EP
 #  <center>**Album**</center>
 
 
-## [The Garden of Zen EP by ](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
+## [The Garden of Zen EP by Jonny Faith](https://www.youtube.com/watch?v=vVUyowbfxzw&list=OLAK5uy_k2BoQFxnA5pqErkSwsVFICn-VdGZSo-c4&index=1)
 📍 Melbourne, Australia 
 *See this track on our [music map 🗺️]()*
  
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4Mz
-E3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4
-MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mj
-k1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0Nzgz
-NTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMT
-kxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIz
-OTkxN119
+eyJoaXN0b3J5IjpbLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNz
+Y0NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAw
+NjkyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMj
+A1Nzg5MDE4NCw2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2Njcx
+MDk0LC0xMDc0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOC
+wxNDEyOTU0MDQsMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4
+MTU4Ml19
 -->
