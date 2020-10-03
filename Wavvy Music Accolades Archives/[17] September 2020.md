@@ -117,7 +117,7 @@ All the proceeds from sales will go toward providing support to those struggling
 We've had a lot of exciting seeds start to sprout in the last few weeks. 
 
 Starting with the Wavvys
-We are launching a NFT (A Unique Token) for the Wavvys, possibly the first use of NFTs in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also 12 limited-edition tradable copies they can trade or sell.
+We are launching a NFT (A Unique Token) for Wavvys winners, possibly the first use of NFTs as trophies in an awards show. All winners, past and future, will get a unique, non-tradable NFT detailing their win, and also **12 limited-edition tradable** copies they can trade or sell.
 
 In cxc.world news, we have selected the **Wax blockchain** to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will **earn crypto** when their songs get **upvotes**, and listeners will also get crypto for sending an upvote, and for adding music on the map. You can also earn for **correcting things** like location and genre / Mood / Format information, and adding missing player links.
 
@@ -148,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg2Nzc3MTgyMiw5MzU2ODMyNDIsLTU4OD
-M2NDk5NiwyMDU3ODkwMTg0LDYyOTU5ODQ2NiwtMTg4NjY5NzA5
-Myw5MTY2NzEwOTQsLTEwNzQ3ODM1MzMsNDUxNzcwODQ0LC0xOT
-g2MjAxMjA4LDE0MTI5NTQwNCwxOTE0MDAwNzY1LDMxMTEzNTYx
-NSwtMjgyMTgxNTgyLC0xMjYxMjM5OTE3LC0xOTM4OTY5NTMxLC
-0yNDgwNzc3MjAsMjIwMzA5MTExLC03Nzc0NzgxMjksLTEyMTMw
-NjI2OTBdfQ==
+eyJoaXN0b3J5IjpbNDcyODQ0OTQ3LC04Njc3NzE4MjIsOTM1Nj
+gzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1OTg0NjYs
+LTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MT
+c3MDg0NCwtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2
+NSwzMTExMzU2MTUsLTI4MjE4MTU4MiwtMTI2MTIzOTkxNywtMT
+kzODk2OTUzMSwtMjQ4MDc3NzIwLDIyMDMwOTExMSwtNzc3NDc4
+MTI5XX0=
 -->
