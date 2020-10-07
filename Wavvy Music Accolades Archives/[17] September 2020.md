@@ -24,7 +24,7 @@ Welcome to the September edition of the Wavvy Music Accolades, where we recogniz
 
 
 ## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q&index=2)
-📍 
+📍 New York City, New York, USA
 *See this track on our [music map 🗺️]()*
 </center>
 
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNz
-Y0NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAw
-NjkyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMj
-A1Nzg5MDE4NCw2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2Njcx
-MDk0LC0xMDc0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOC
-wxNDEyOTU0MDQsMTkxNDAwMDc2NSwzMTExMzU2MTUsLTI4MjE4
-MTU4Ml19
+eyJoaXN0b3J5IjpbLTE5NTc2NTAyMjYsLTEwMTYyMjU1MDYsLT
+ExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2
+NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC
+01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1OTg0NjYsLTE4ODY2
+OTcwOTMsOTE2NjcxMDk0LC0xMDc0NzgzNTMzLDQ1MTc3MDg0NC
+wtMTk4NjIwMTIwOCwxNDEyOTU0MDQsMTkxNDAwMDc2NSwzMTEx
+MzU2MTVdfQ==
 -->
