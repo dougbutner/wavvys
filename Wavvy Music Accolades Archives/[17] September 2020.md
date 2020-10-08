@@ -71,7 +71,7 @@ We found this one organically on the map, and it's a wonderful example of why we
 
 #  <center>**Live Performance**</center>
 
-## [Easy Freak - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
+## [EASY FREAK - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
 📍 Johannesburg, South Africa
 *See this track on our [music map 🗺️]()*
 </center>
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg2NDE5MTY0OSwtMTk1NzY1MDIyNiwtMT
-AxNjIyNTUwNiwtMTExMDYwMTg3Niw3NjQ0NTQ3OTYsMzgzMTcz
-ODc3LDIxMDY4NDY1MjIsLTIwNjIyMDA2OTIsLTg2Nzc3MTgyMi
-w5MzU2ODMyNDIsLTU4ODM2NDk5NiwyMDU3ODkwMTg0LDYyOTU5
-ODQ2NiwtMTg4NjY5NzA5Myw5MTY2NzEwOTQsLTEwNzQ3ODM1Mz
-MsNDUxNzcwODQ0LC0xOTg2MjAxMjA4LDE0MTI5NTQwNCwxOTE0
-MDAwNzY1XX0=
+eyJoaXN0b3J5IjpbMTc4NDU5NTE5LC04NjQxOTE2NDksLTE5NT
+c2NTAyMjYsLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0
+Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC
+04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5
+MDE4NCw2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC
+0xMDc0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEy
+OTU0MDRdfQ==
 -->
