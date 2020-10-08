@@ -131,6 +131,8 @@ We are launching a NFT (A Unique Token) for Wavvys winners, possibly the first u
 
 In cxc.world news, we have selected the **Wax blockchain** to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will **earn crypto** when their songs get **upvotes**, and listeners will also get crypto for sending an upvote, and for adding music on the map. You can also earn for **correcting things** like location and genre / Mood / Format information, and adding missing player links.
 
+We launched a [cxc.world Telegram group](https://t.me/joinchat/Q2KICxnxzCppKWpyxJdPAQ)
+
 Finally, We have **powered up over 3,000 HP** to upvote music on Hive. We will be upvoting all original music posts in our [World of Music community](https://peakd.com/c/hive-179421/trending). You can easily share your music you already posted on cXc Music to your Hive blog with **just a click**, then you can crosspost the music onto the World of Music community on Peakd.com or hive.blog.
 
 
@@ -158,11 +160,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMjYxNjgxNjksMTE2Njg3MjY2MiwtND
-YyNjg2MjkxLC00MTgxMTQ0OTgsLTEzNjkxODU3NTgsNTU0NjE0
-NjY5LDEzNDk0MjI4ODEsMTc4NDU5NTE5LC04NjQxOTE2NDksLT
-E5NTc2NTAyMjYsLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0
-NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNj
-kyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1
-Nzg5MDE4NF19
+eyJoaXN0b3J5IjpbLTEyODExNDQxNTgsLTEwMjYxNjgxNjksMT
+E2Njg3MjY2MiwtNDYyNjg2MjkxLC00MTgxMTQ0OTgsLTEzNjkx
+ODU3NTgsNTU0NjE0NjY5LDEzNDk0MjI4ODEsMTc4NDU5NTE5LC
+04NjQxOTE2NDksLTE5NTc2NTAyMjYsLTEwMTYyMjU1MDYsLTEx
+MTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NT
+IyLC0yMDYyMjAwNjkyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC01
+ODgzNjQ5OTZdfQ==
 -->
