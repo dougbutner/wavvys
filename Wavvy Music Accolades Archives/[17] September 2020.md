@@ -119,7 +119,7 @@ We are launching a NFT (A Unique Token) for Wavvys winners, possibly the first u
 
 In cxc.world news, we have selected the **Wax blockchain** to run the next version of cXc Music, and are currently integrating it into Beta. Once Beta launches, every song maker will **earn crypto** when their songs get **upvotes**, and listeners will also get crypto for sending an upvote, and for adding music on the map. You can also earn for **correcting things** like location and genre / Mood / Format information, and adding missing player links.
 
-Finally, We have **powered up over 3,000 HP** to upvote music on Hive. We will be upvoting all original music posts in our [World of Music community](). You can easily share your music you already posted on cXc Music to your Hive blog with **just a click**, then you can crosspost the music onto the World of Music community on Peakd.com or hive.blog.
+Finally, We have **powered up over 3,000 HP** to upvote music on Hive. We will be upvoting all original music posts in our [World of Music community](https://peakd.com/c/hive-179421/trending). You can easily share your music you already posted on cXc Music to your Hive blog with **just a click**, then you can crosspost the music onto the World of Music community on Peakd.com or hive.blog.
 
 
 <hr>
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ2MjY4NjI5MSwtNDE4MTE0NDk4LC0xMz
-Y5MTg1NzU4LDU1NDYxNDY2OSwxMzQ5NDIyODgxLDE3ODQ1OTUx
-OSwtODY0MTkxNjQ5LC0xOTU3NjUwMjI2LC0xMDE2MjI1NTA2LC
-0xMTEwNjAxODc2LDc2NDQ1NDc5NiwzODMxNzM4NzcsMjEwNjg0
-NjUyMiwtMjA2MjIwMDY5MiwtODY3NzcxODIyLDkzNTY4MzI0Mi
-wtNTg4MzY0OTk2LDIwNTc4OTAxODQsNjI5NTk4NDY2LC0xODg2
-Njk3MDkzXX0=
+eyJoaXN0b3J5IjpbMTE2Njg3MjY2MiwtNDYyNjg2MjkxLC00MT
+gxMTQ0OTgsLTEzNjkxODU3NTgsNTU0NjE0NjY5LDEzNDk0MjI4
+ODEsMTc4NDU5NTE5LC04NjQxOTE2NDksLTE5NTc2NTAyMjYsLT
+EwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3
+Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4Mj
+IsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1
+OTg0NjZdfQ==
 -->
