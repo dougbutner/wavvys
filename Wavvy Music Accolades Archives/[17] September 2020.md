@@ -144,7 +144,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 
 ## ✔️ Rules
-- Any submission to [music.cxc.world](https://music.cxc.world) is eligible to win, regardless of genre/mood  👉 [Learn how to post on cXc Music](https://docs.cxc.world/knowledge-base/how-to-add-music/)
+- Any submission to [cxc.world](https://music.cxc.world) is eligible to win, regardless of genre/mood  👉 [Learn how to post on cXc Music](https://docs.cxc.world/knowledge-base/how-to-add-music/)
 - Winners must have UNDER 100k plays average on platforms
 - Must be on Soundcloud, Youtube and/or Spotify
 
@@ -158,13 +158,13 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🌊 Wavvy Music Accolades take place Monthly, with one winner in four categories: Music Video, Single, Live Performance, and Album.
 
-🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
+🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next month's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI2Mjg5ODI0LC0xMDI2MTY4MTY5LDExNj
-Y4NzI2NjIsLTQ2MjY4NjI5MSwtNDE4MTE0NDk4LC0xMzY5MTg1
-NzU4LDU1NDYxNDY2OSwxMzQ5NDIyODgxLDE3ODQ1OTUxOSwtOD
-Y0MTkxNjQ5LC0xOTU3NjUwMjI2LC0xMDE2MjI1NTA2LC0xMTEw
-NjAxODc2LDc2NDQ1NDc5NiwzODMxNzM4NzcsMjEwNjg0NjUyMi
-wtMjA2MjIwMDY5MiwtODY3NzcxODIyLDkzNTY4MzI0MiwtNTg4
-MzY0OTk2XX0=
+eyJoaXN0b3J5IjpbMTY1NDUxMjkzMywxMjYyODk4MjQsLTEwMj
+YxNjgxNjksMTE2Njg3MjY2MiwtNDYyNjg2MjkxLC00MTgxMTQ0
+OTgsLTEzNjkxODU3NTgsNTU0NjE0NjY5LDEzNDk0MjI4ODEsMT
+c4NDU5NTE5LC04NjQxOTE2NDksLTE5NTc2NTAyMjYsLTEwMTYy
+MjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3Mzg3Ny
+wyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4MjIsOTM1
+NjgzMjQyXX0=
 -->
