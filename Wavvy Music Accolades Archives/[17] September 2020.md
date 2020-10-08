@@ -4,7 +4,7 @@
 
 <hr>
 
-Welcome to the September edition of the Wavvy Music Accolades, where we recognize incredible music from around the world with under 100,000 plays. The Wavvys are held by cxc.world, an online map of music any artist can contribute to, and any fans can gift exposure to artists they love with just a click. 
+Welcome to the September edition of the Wavvy Music Accolades, where we recognize incredible music from around the world with under 100,000 plays. The Wavvys are held by [cxc.world](https://cxc.world), an online map of music any artist can contribute to, and any fans can gift exposure to artists they love with just a click. 
 
 
 
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNjkxODU3NTgsNTU0NjE0NjY5LDEzND
-k0MjI4ODEsMTc4NDU5NTE5LC04NjQxOTE2NDksLTE5NTc2NTAy
-MjYsLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0Nzk2LD
-M4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3
-NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NC
-w2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC0xMDc0
-NzgzNTMzXX0=
+eyJoaXN0b3J5IjpbLTQxODExNDQ5OCwtMTM2OTE4NTc1OCw1NT
+Q2MTQ2NjksMTM0OTQyMjg4MSwxNzg0NTk1MTksLTg2NDE5MTY0
+OSwtMTk1NzY1MDIyNiwtMTAxNjIyNTUwNiwtMTExMDYwMTg3Ni
+w3NjQ0NTQ3OTYsMzgzMTczODc3LDIxMDY4NDY1MjIsLTIwNjIy
+MDA2OTIsLTg2Nzc3MTgyMiw5MzU2ODMyNDIsLTU4ODM2NDk5Ni
+wyMDU3ODkwMTg0LDYyOTU5ODQ2NiwtMTg4NjY5NzA5Myw5MTY2
+NzEwOTRdfQ==
 -->
