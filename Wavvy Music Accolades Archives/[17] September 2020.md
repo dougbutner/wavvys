@@ -23,7 +23,10 @@ https://www.youtube.com/watch?v=n4s4FCCwnGk&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_b
 
 
 
-## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q&index=2)
+## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
+
+https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q
+
 📍 New York City, New York, USA
 *See this track on our [music map 🗺️](https://music.cxc.world/?id=1819&locLat=40.760&locLng=-73.890&zoom=10)*
 </center>
@@ -48,6 +51,9 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 #  <center> **Single**</center> 
 
 ## [In Surround Sound by Punchbowl Astronauts](https://www.youtube.com/watch?v=oq8PyNVJ2Z4&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
+
+https://www.youtube.com/watch?v=oq8PyNVJ2Z4&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q
+
 📍 New Haven, Connecticut, USA
 *See this track on our [music map 🗺️](https://music.cxc.world/?locLat=41.295&locLng=-72.495&zoom=9&id=1441)*
 This is a well rounded sound that reminds me of the power ballads of the 80s. It's full of bright sound, expansive emotion, and colorful textures. 
@@ -72,6 +78,9 @@ We found this one organically on the map, and it's a wonderful example of why we
 #  <center>**Live Performance**</center>
 
 ## [EASY FREAK - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
+
+https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q
+
 📍 Johannesburg, South Africa
 *See this track on our [music map 🗺️](https://music.cxc.world/?id=1817&locLat=-26.250&locLng=28.024&zoom=5)*
 </center>
@@ -146,11 +155,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE2Njg3MjY2MiwtNDYyNjg2MjkxLC00MT
-gxMTQ0OTgsLTEzNjkxODU3NTgsNTU0NjE0NjY5LDEzNDk0MjI4
-ODEsMTc4NDU5NTE5LC04NjQxOTE2NDksLTE5NTc2NTAyMjYsLT
-EwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3
-Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4Mj
-IsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5MDE4NCw2Mjk1
-OTg0NjZdfQ==
+eyJoaXN0b3J5IjpbLTE1MDgwNjUxMTcsMTE2Njg3MjY2MiwtND
+YyNjg2MjkxLC00MTgxMTQ0OTgsLTEzNjkxODU3NTgsNTU0NjE0
+NjY5LDEzNDk0MjI4ODEsMTc4NDU5NTE5LC04NjQxOTE2NDksLT
+E5NTc2NTAyMjYsLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0
+NDU0Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNj
+kyLC04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1
+Nzg5MDE4NF19
 -->
