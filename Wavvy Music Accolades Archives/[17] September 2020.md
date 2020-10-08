@@ -73,7 +73,7 @@ We found this one organically on the map, and it's a wonderful example of why we
 
 ## [EASY FREAK - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
 📍 Johannesburg, South Africa
-*See this track on our [music map 🗺️]()*
+*See this track on our [music map 🗺️](https://music.cxc.world/?id=1817&locLat=-26.250&locLng=28.024&zoom=5)*
 </center>
 
 Easy Freak brings us a carefree summer vibe in this live performance of their EP More Love. This band jams as one unit, while the lead singer lays punchy pop vocals with solid delivery. The drummer also comes in with some lovely soulful vocal fills, giving us two distinct vibes in one performance.  There's also a really wild keyboard solo in there. Easy freak is one of those bands that's just easy to vibe with.
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc4NDU5NTE5LC04NjQxOTE2NDksLTE5NT
-c2NTAyMjYsLTEwMTYyMjU1MDYsLTExMTA2MDE4NzYsNzY0NDU0
-Nzk2LDM4MzE3Mzg3NywyMTA2ODQ2NTIyLC0yMDYyMjAwNjkyLC
-04Njc3NzE4MjIsOTM1NjgzMjQyLC01ODgzNjQ5OTYsMjA1Nzg5
-MDE4NCw2Mjk1OTg0NjYsLTE4ODY2OTcwOTMsOTE2NjcxMDk0LC
-0xMDc0NzgzNTMzLDQ1MTc3MDg0NCwtMTk4NjIwMTIwOCwxNDEy
-OTU0MDRdfQ==
+eyJoaXN0b3J5IjpbMTM0OTQyMjg4MSwxNzg0NTk1MTksLTg2ND
+E5MTY0OSwtMTk1NzY1MDIyNiwtMTAxNjIyNTUwNiwtMTExMDYw
+MTg3Niw3NjQ0NTQ3OTYsMzgzMTczODc3LDIxMDY4NDY1MjIsLT
+IwNjIyMDA2OTIsLTg2Nzc3MTgyMiw5MzU2ODMyNDIsLTU4ODM2
+NDk5NiwyMDU3ODkwMTg0LDYyOTU5ODQ2NiwtMTg4NjY5NzA5My
+w5MTY2NzEwOTQsLTEwNzQ3ODM1MzMsNDUxNzcwODQ0LC0xOTg2
+MjAxMjA4XX0=
 -->
