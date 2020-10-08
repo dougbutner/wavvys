@@ -49,7 +49,7 @@ The music video features psychedelic colors and, well, lines. It's an energetic 
 
 ## [In Surround Sound by Punchbowl Astronauts](https://www.youtube.com/watch?v=oq8PyNVJ2Z4&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
 📍 New Haven, Connecticut, USA
-*See this track on our [music map 🗺️]()*
+*See this track on our [music map 🗺️](https://music.cxc.world/?locLat=41.295&locLng=-72.495&zoom=9&id=1441)*
 This is a well rounded sound that reminds me of the power ballads of the 80s. It's full of bright sound, expansive emotion, and colorful textures. 
 
 Relatable lyrics, powerful vocals, and all the instruments and backing vocals come together to fill out an incredible track. 
@@ -146,7 +146,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzgwMjYwNjQzLDEzNDk0MjI4ODEsMTc4ND
+eyJoaXN0b3J5IjpbNTU0NjE0NjY5LDEzNDk0MjI4ODEsMTc4ND
 U5NTE5LC04NjQxOTE2NDksLTE5NTc2NTAyMjYsLTEwMTYyMjU1
 MDYsLTExMTA2MDE4NzYsNzY0NDU0Nzk2LDM4MzE3Mzg3NywyMT
 A2ODQ2NTIyLC0yMDYyMjAwNjkyLC04Njc3NzE4MjIsOTM1Njgz
