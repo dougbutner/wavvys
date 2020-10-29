@@ -87,10 +87,8 @@ ___
 *See this track on our [music map 🗺️]()*
  
 </center>
-Deca brings us syllables delicately weaved into a tapestry of the story of human consciousness. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
-
- 
-Samples throughout the album bring us back decades. 
+Deca brings us syllables delicately weaved into a tapestry displaying the story of human consciousness. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
+To me, it's a bright bulb in a dimming field of hip hop. Thought provoking speech samples throughout the album bring us back decades. 
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -137,5 +135,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1MjI2NTc3NCwxNjc5NTczOTI2XX0=
+eyJoaXN0b3J5IjpbMTM2NTkwNTkwNSwxNjc5NTczOTI2XX0=
 -->
