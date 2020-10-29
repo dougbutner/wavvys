@@ -2,7 +2,7 @@
 # <center> **Wavvy Music Accolades**</center> 
 ###### <center> Month, 2020</center> 
 
-<hr>
+___
 
 # Watch the winning music playlist here, presented by [Douglas](https://douglas.life)
 
@@ -134,5 +134,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MjcwMzg0MjNdfQ==
+eyJoaXN0b3J5IjpbMTY3OTU3MzkyNl19
 -->
