@@ -87,7 +87,7 @@ ___
 *See this track on our [music map 🗺️]()*
  
 </center>
-Deca brings us syllables weaved into the 
+Deca brings us syllables weaved into th
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -134,5 +134,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMDE3OTc0MDIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbMTQwNzA1OTkzNywxNjc5NTczOTI2XX0=
 -->
