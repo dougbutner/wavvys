@@ -23,7 +23,7 @@ ___
 📍 
 *See this track on our [music map 🗺️]()*
 </center>
-From a secluded cabin in 
+From a secluded cabin in a lush forrest in Poland, Indygo takes us through an exploration of the simple majesty of the world all around us, and the world that we are. The video shows one woman making this discoverr, 
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -136,7 +136,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjg3ODU1OTUyLC01ODQyMzQyMjksLTExMj
-Q4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OTU3Mzky
-Nl19
+eyJoaXN0b3J5IjpbLTE4NzEwNTg0NjYsLTU4NDIzNDIyOSwtMT
+EyNDg5OTM5Nyw5NTEwNDgxNCwtMTgxMzExNzA2MiwxNjc5NTcz
+OTI2XX0=
 -->
