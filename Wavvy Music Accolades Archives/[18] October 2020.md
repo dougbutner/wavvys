@@ -44,7 +44,7 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title is a reference to the 
+Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title is a reference to a story about a well-off man who sells his bountiful estate to go search for diamonds, and ends up penniless and commits suicide. The man he sold his land to soon finds that it is filled with diamond, and the spot becomes the most productive diamond mine in the world. The analgy
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -134,6 +134,6 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OT
-U3MzkyNl19
+eyJoaXN0b3J5IjpbLTgyNjQ0NTA2MSw5NTEwNDgxNCwtMTgxMz
+ExNzA2MiwxNjc5NTczOTI2XX0=
 -->
