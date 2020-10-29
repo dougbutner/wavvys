@@ -39,7 +39,7 @@ ___
 
 #  <center> **Single**</center> 
 
-## []()
+## [BUZ - ACRES OF DIAMONDS]()
 📍 
 *See this track on our [music map 🗺️]()*
 
@@ -50,7 +50,7 @@ ___
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=CcgX7ps3g8U) ~ [Soundcloud]()
 
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
@@ -93,7 +93,7 @@ To me, it's a bright bulb in a dimming field of hip hop. Thought provoking speec
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]()
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
 
@@ -135,5 +135,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM2NTkwNTkwNSwxNjc5NTczOTI2XX0=
+eyJoaXN0b3J5IjpbLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl19
 -->
