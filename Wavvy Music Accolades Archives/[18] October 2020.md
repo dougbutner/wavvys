@@ -44,7 +44,7 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Buz brings us a relatable tale of personal struggle, growth, and breaking out of
+Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title is a reference to the 
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -134,6 +134,6 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNjg5MjIzMzEsLTE4MTMxMTcwNjIsMT
-Y3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OT
+U3MzkyNl19
 -->
