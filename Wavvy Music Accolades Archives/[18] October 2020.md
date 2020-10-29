@@ -9,11 +9,11 @@
 
 
 
-<hr>
+___
 
 # <center>🏆 Winners 🏆 </center>
 
-<hr>
+___
 
 #  <center> **Music Video**</center> 
 
@@ -34,7 +34,7 @@
 
 🔗 Find  on: []()
 
-<hr>
+___
 
 
 #  <center> **Single**</center> 
@@ -58,7 +58,7 @@
 
 🔗 Find  on: []()
 
-<hr>
+___
 
 #  <center>**Live Performance**</center>
 
@@ -77,7 +77,7 @@
 
 🔗 Find  on: []()
 
-<hr>
+___
 
 #  <center>**Album**</center>
 
@@ -99,12 +99,19 @@
 🔗 Find  on: []()
 
 
-
+___
 # <center>📰 News Section </center>
-## *Headline:*
+## *Headline:*  GOLD VERSION
 
-<hr>
 
+
+
+
+
+
+
+
+___
 # <center>ℹ️ About the Wavvy Music Accolades🕺 🌊 </center>
 
 An accolade is a recognition of merit. We started the Wavvy Music Accolades to recognize AWESOME music that has somehow remained undiscovered.
@@ -127,5 +134,5 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg3MDk2NDI3NF19
+eyJoaXN0b3J5IjpbLTE3MjcwMzg0MjNdfQ==
 -->
