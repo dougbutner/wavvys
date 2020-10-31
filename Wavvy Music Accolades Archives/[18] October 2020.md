@@ -20,7 +20,7 @@ ___
 
 
 ## [Indygo by MUNDINOVA]()
-📍 
+📍 Gniewoszów, Poland
 *See this track on our [music map 🗺️]()*
 </center>
 From a secluded cabin in a lush forrest in Poland, Indygo takes us through an exploration of the simple majesty of the world all around us, and the world that we are. The video shows one woman reflecting on the simple but infinitely complex journey of being human on planet Earth. The mirror scenes remind me of taking psychedelics, stepping into a new world that was there all along. 
@@ -28,7 +28,7 @@ From a secluded cabin in a lush forrest in Poland, Indygo takes us through an ex
 This change in perspective is why this piece was chosen. To change a perspective about what music, and music videos can be. Not only that, but to show the impact we can have on others by simply displaying raw human emotion and experience.  
 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered with 769 views, 33 likes on Youtube
 
 🎧 Listen on [Spotify](https://open.spotify.com/artist/3Vb6lmYUNPoC46aAdcXWqA?si=OAcQgztbSX6ot1v4o-v9zQ) ~ [Youtube](https://www.youtube.com/watch?v=8fJM_bNKFME)
 
@@ -153,9 +153,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2OD
-ExMzI5LDUwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2Mjcs
-LTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC01OD
-QyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcw
-NjIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbLTI5NDAwMDY1OCwyNzMyNDcyOTIsNDIzOD
+g3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4NjIw
+LDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3LDE4Nz
+A5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NTEwNDgx
+NCwtMTgxMzExNzA2MiwxNjc5NTczOTI2XX0=
 -->
