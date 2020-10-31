@@ -53,7 +53,7 @@ We look forward to more Diamonds from Buz.
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=CcgX7ps3g8U) ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/artist/3HLwtkKPPvrbf7iCZnGKgO) ~ [Youtube](https://www.youtube.com/watch?v=CcgX7ps3g8U) ~ [Soundcloud]()
 
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
@@ -153,9 +153,10 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxNDcwNDY4ODgsMjczMjQ3MjkyLDQyMz
-g4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIyOSwtMTg2NTMwODYy
-MCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxOD
-cwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4
-MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbLTIwOTAwMTg0ODYsLTIxNDcwNDY4ODgsMj
+czMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIy
+OSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLT
+EwMzM1Nzg2NywxODcwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4
+OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl
+19
 -->
