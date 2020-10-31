@@ -78,7 +78,7 @@ Thunder has been holding concerts for nobody amid the pandemic, creating somethi
 
 🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
+💫 Connect on [Instagram](https://www.instagram.com/thunderjackson/) ~ [Facebook](https://www.facebook.com/thunderjackson) ~ [Twitter](https://twitter.com/thunderjackson)
 
 🔗 Find  on: []()
 
@@ -152,10 +152,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NT
-QxODExLC0yMDkwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5
-Miw0MjM4ODc5ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4Nj
-UzMDg2MjAsNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4
-NjcsMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5Mzk3LD
-k1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1NzM5MjZdfQ==
+eyJoaXN0b3J5IjpbMjA2NjMxMjA3OCwzNDczNDczOTAsMTI5Mz
+ExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4
+ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNj
+Q1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2
+NTQsLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC01ODQyMzQyMjksLT
+ExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OTU3
+MzkyNl19
 -->
