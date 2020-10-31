@@ -76,7 +76,7 @@ Thunder has been holding concerts for nobody amid the pandemic, creating somethi
 
 🕵 Discovered with 21,744 views,  likes on Youtube
 
-🎧 Listen on [Spotify](https://open.spotify.com/artist/3o0xJMKswwtXz2PhrRCHhJ) ~ [Youtube](https://www.youtube.com/watch?v=izAYrp8c6SE) ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/artist/3o0xJMKswwtXz2PhrRCHhJ) ~ [Youtube](https://www.youtube.com/watch?v=izAYrp8c6SE) ~ [Soundcloud](https://soundcloud.com/thunderjackson)
 
 💫 Connect on [Instagram](https://www.instagram.com/thunderjackson/) ~ [Facebook](https://www.facebook.com/thunderjackson) ~ [Twitter](https://twitter.com/thunderjackson)
 
@@ -150,11 +150,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMjYwOTkzMTQsMTY5MjUwMTc2OSwzND
-czNDczOTAsMTI5MzExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0
-ODYsLTIxNDcwNDY4ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxND
-g2ODExMzI5LDUwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2
-MjcsLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC
-01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMx
-MTcwNjJdfQ==
+eyJoaXN0b3J5IjpbMTg2NDMzOTY1MiwtMTAyNjA5OTMxNCwxNj
+kyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LDgyODU0MTgx
+MSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMyNDcyOTIsND
+IzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4
+NjIwLDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3LD
+E4NzA5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NTEw
+NDgxNF19
 -->
