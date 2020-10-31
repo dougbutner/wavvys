@@ -76,11 +76,9 @@ Thunder has been holding concerts for nobody amid the pandemic, creating somethi
 
 🕵 Discovered with 21,744 views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube]() ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=izAYrp8c6SE) ~ [Soundcloud]()
 
 💫 Connect on [Instagram](https://www.instagram.com/thunderjackson/) ~ [Facebook](https://www.facebook.com/thunderjackson) ~ [Twitter](https://twitter.com/thunderjackson)
-
-🔗 Find  on: []()
 
 ___
 
@@ -152,7 +150,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA2NjMxMjA3OCwzNDczNDczOTAsMTI5Mz
+eyJoaXN0b3J5IjpbMTY5MjUwMTc2OSwzNDczNDczOTAsMTI5Mz
 ExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4
 ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNj
 Q1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2
