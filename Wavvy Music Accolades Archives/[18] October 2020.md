@@ -69,7 +69,7 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy releasing a ton of music in 2020, and holding concerts for nobody amid the pandemic, creating something from nothing, and that something vibrates the follicles so well I think it's worth sharing. 
+Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy releasing a ton of music in 2020, and holding concerts for nobody amid the pandemic, creating something from nothing, and that something vibrates the follicles so well I had to share it with you. 
 
 
 🕵 Discovered with 21,744 views,  likes on Youtube
@@ -88,7 +88,7 @@ ___
 *See this track on our [music map 🗺️]()*
  
 </center>
-Deca brings us colorful syllables delicately weaved into a tapestry displaying the story of human consciousness. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
+Deca brings us colorful syllables delicately weaved into a tapestry displaying stories of human consciousness and humanity's struggles. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
 To me, a long time fan and artist in the genre, it's a bright bulb in a dimming field of hip hop. Thought provoking speech samples throughout the album bring us back decades. 
 
 
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA2NzkxMTc5NywtMTQzNjc0NTA3Myw3OT
-MxMjkzMzUsMTg5NjYyMDI4LC0xMDI2MDk5MzE0LDE2OTI1MDE3
-NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQxODExLC0yMD
-kwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Miw0MjM4ODc5
-ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUzMDg2MjAsND
-IwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4NjcsMTg3MDk5
-NTY0Nl19
+eyJoaXN0b3J5IjpbMTE3Nzc5NTgyMCwyMDY3OTExNzk3LC0xND
+M2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIwMjgsLTEwMjYwOTkz
+MTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMTI5MzExODY2NCw4Mj
+g1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4ODgsMjczMjQ3
+MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIyOSwtMT
+g2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLTEwMzM1
+Nzg2N119
 -->
