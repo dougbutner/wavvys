@@ -69,7 +69,7 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy releasing a ton of music in 2020, and holding concerts for nobody amid the pandemic, creating something from nothing, and that something tickles the angels so well I think it's worth sharing. 
+Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy releasing a ton of music in 2020, and holding concerts for nobody amid the pandemic, creating something from nothing, and that something vibrates the follicles so well I think it's worth sharing. 
 
 
 🕵 Discovered with 21,744 views,  likes on Youtube
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzkzMTI5MzM1LDE4OTY2MjAyOCwtMTAyNj
-A5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0
-LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNz
-MyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5
-LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMT
-AzMzU3ODY3LDE4NzA5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5
-OTM5N119
+eyJoaXN0b3J5IjpbLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OT
+Y2MjAyOCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5
+MCwxMjkzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMj
+E0NzA0Njg4OCwyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEz
+MjksNTA2NDU3MjI5LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMT
+M4NTY3NTY1NCwtMTAzMzU3ODY3LDE4NzA5OTU2NDYsLTU4NDIz
+NDIyOV19
 -->
