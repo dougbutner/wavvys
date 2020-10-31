@@ -109,9 +109,11 @@ ___
 
 Friends, we recently debuted the latest version of cXc Music, Gold Version. 
 
-Gold Version offers three new styles 
+Gold Version offers three new map styles, and improved music dots. 
 
+This is the final minor release until we move to Beta, with crypto rewards on the Wax blockchain, and so much more. 
 
+[Paste tweet]
 
 
 
@@ -140,7 +142,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxOD
-cwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4
-MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMD
+MzNTc4NjcsMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5
+Mzk3LDk1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1NzM5MjZdfQ
+==
 -->
