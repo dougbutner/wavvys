@@ -46,9 +46,9 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title is a reference to a story about a well-off man who sells his bountiful estate to go search for diamonds, and ends up penniless and commits suicide. The man he sold his land to soon finds that it is filled with diamond, and the spot becomes the most productive diamond mine in the world. The analogy is that we are all sitting on immense wealth within ourselves, we just have to be content and love ourselves, and look inside to find those diamonds, polish them, and share them with the world. 
+Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title "Acres of Diamonds" is a reference to a story about a well-off man who sells his bountiful estate to go search for diamonds, and ends up penniless and suicidal. The man he sold his land to soon finds that it is filled with diamonds, and the spot becomes the most productive diamond mine in the world. The analogy is that we are all sitting on immense wealth within ourselves, we just have to be content and love ourselves, and look inside to recognize those diamonds, polish them, and share them with the world. 
 
-We look forward to more Diamonds from Buz.
+We look forward to hearing more Diamonds from Buz.
 
 
 🕵 Discovered with 614 views, 65 likes on Youtube
@@ -146,11 +146,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OT
-Y2MjAyOCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5
-MCwxMjkzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMj
-E0NzA0Njg4OCwyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEz
-MjksNTA2NDU3MjI5LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMT
-M4NTY3NTY1NCwtMTAzMzU3ODY3LDE4NzA5OTU2NDYsLTU4NDIz
-NDIyOV19
+eyJoaXN0b3J5IjpbMjA2NzkxMTc5NywtMTQzNjc0NTA3Myw3OT
+MxMjkzMzUsMTg5NjYyMDI4LC0xMDI2MDk5MzE0LDE2OTI1MDE3
+NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQxODExLC0yMD
+kwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Miw0MjM4ODc5
+ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUzMDg2MjAsND
+IwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4NjcsMTg3MDk5
+NTY0Nl19
 -->
