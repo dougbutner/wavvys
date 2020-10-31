@@ -23,7 +23,7 @@ ___
 📍 
 *See this track on our [music map 🗺️]()*
 </center>
-From a secluded cabin in a lush forrest in Poland, Indygo takes us through an exploration of the simple majesty of the world all around us, and the world that we are. The video shows one woman reflecting on the simple but infinitely complex journey of being human on planet Earth. The mirror scenes remind me of taking psycadellics, stepping into a new world that was there all along. 
+From a secluded cabin in a lush forrest in Poland, Indygo takes us through an exploration of the simple majesty of the world all around us, and the world that we are. The video shows one woman reflecting on the simple but infinitely complex journey of being human on planet Earth. The mirror scenes remind me of taking psychedelics, stepping into a new world that was there all along. 
 
 This change in perspective is why this piece was chosen. To change a perspective about what music, and music videos can be. Not only that, but to show the impact we can have on others by simply displaying raw human emotion and experience.  
 
@@ -153,8 +153,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTcyMDc2OTMsNTA2NDU3MjI5LC0xODY1Mz
-A4NjIwLDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3
-LDE4NzA5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NT
-EwNDgxNCwtMTgxMzExNzA2MiwxNjc5NTczOTI2XX0=
+eyJoaXN0b3J5IjpbMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4Nj
+UzMDg2MjAsNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4
+NjcsMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5Mzk3LD
+k1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1NzM5MjZdfQ==
 -->
