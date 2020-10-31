@@ -19,7 +19,7 @@ ___
 
 
 
-## []()
+## [Indygo by MUNDINOVA]()
 📍 
 *See this track on our [music map 🗺️]()*
 </center>
@@ -30,9 +30,9 @@ This change in perspective is why this piece was chosen. To change a perspective
 
 🕵 Discovered with  views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=8fJM_bNKFME) ~ [Soundcloud]()
+🎧 Listen on [Spotify](https://open.spotify.com/artist/3Vb6lmYUNPoC46aAdcXWqA?si=OAcQgztbSX6ot1v4o-v9zQ) ~ [Youtube](https://www.youtube.com/watch?v=8fJM_bNKFME)
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
+💫 Connect on [Instagram](https://www.instagram.com/mundinova.music/) ~ [Facebook](https://www.facebook.com/mundinovamusic/) 
 
 🔗 Find  on: []()
 
@@ -153,9 +153,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDIzODg3OTg4LDE0ODY4MTEzMjksNTA2ND
-U3MjI5LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMTM4NTY3NTY1
-NCwtMTAzMzU3ODY3LDE4NzA5OTU2NDYsLTU4NDIzNDIyOSwtMT
-EyNDg5OTM5Nyw5NTEwNDgxNCwtMTgxMzExNzA2MiwxNjc5NTcz
-OTI2XX0=
+eyJoaXN0b3J5IjpbMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2OD
+ExMzI5LDUwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2Mjcs
+LTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC01OD
+QyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcw
+NjIsMTY3OTU3MzkyNl19
 -->
