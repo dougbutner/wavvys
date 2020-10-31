@@ -48,7 +48,7 @@ ___
 
 Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title is a reference to a story about a well-off man who sells his bountiful estate to go search for diamonds, and ends up penniless and commits suicide. The man he sold his land to soon finds that it is filled with diamond, and the spot becomes the most productive diamond mine in the world. The analogy is that we are all sitting on immense wealth within ourselves, we just have to be content and love ourselves, and look inside to find those diamonds, polish them, and share them with the world. 
 
-We look forward to more Diamonds from Buz
+We look forward to more Diamonds from Buz.
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -153,8 +153,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4Nj
-UzMDg2MjAsNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4
-NjcsMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5Mzk3LD
-k1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1NzM5MjZdfQ==
+eyJoaXN0b3J5IjpbLTE2OTk0NTk0ODEsMTQ4NjgxMTMyOSw1MD
+Y0NTcyMjksLTE4NjUzMDg2MjAsNDIwMTUyNjI3LC0xMzg1Njc1
+NjU0LC0xMDMzNTc4NjcsMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC
+0xMTI0ODk5Mzk3LDk1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1
+NzM5MjZdfQ==
 -->
