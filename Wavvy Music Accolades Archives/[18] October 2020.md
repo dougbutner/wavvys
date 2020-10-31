@@ -91,7 +91,7 @@ ___
  
 </center>
 Deca brings us colorful syllables delicately weaved into a tapestry displaying the story of human consciousness. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
-To me, it's a bright bulb in a dimming field of hip hop. Thought provoking speech samples throughout the album bring us back decades. 
+To me, a long time fan and artist in the , it's a bright bulb in a dimming field of hip hop. Thought provoking speech samples throughout the album bring us back decades. 
 
 
 🕵 Discovered with  views,  likes on Youtube
@@ -138,7 +138,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMT
-I0ODk5Mzk3LDk1MTA0ODE0LC0xODEzMTE3MDYyLDE2Nzk1NzM5
-MjZdfQ==
+eyJoaXN0b3J5IjpbLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC01OD
+QyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcw
+NjIsMTY3OTU3MzkyNl19
 -->
