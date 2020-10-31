@@ -98,7 +98,7 @@ To me, a long time fan and artist in the genre, it's a bright bulb in a dimming 
 
 🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]() ~ [Bandcamp](https://deca.bandcamp.com/album/snakes-and-birds)
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
+💫 Connect on [Instagram](https://www.instagram.com/decamusic/?hl=en) ~ [Facebook](https://www.facebook.com/DecaMusic/) ~ [Twitter](https://twitter.com/decamusic?lang=en)
 
 🔗 Find  on: []()
 
@@ -150,11 +150,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5NzI1Mjk3OCwtMTAyNjA5OTMxNCwxNj
-kyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LDgyODU0MTgx
-MSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMyNDcyOTIsND
-IzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4
-NjIwLDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3LD
-E4NzA5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NTEw
-NDgxNF19
+eyJoaXN0b3J5IjpbMTg5NjYyMDI4LC0xMDI2MDk5MzE0LDE2OT
+I1MDE3NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQxODEx
+LC0yMDkwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Miw0Mj
+M4ODc5ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUzMDg2
+MjAsNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4NjcsMT
+g3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5Mzk3LDk1MTA0
+ODE0XX0=
 -->
