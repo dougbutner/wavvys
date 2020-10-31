@@ -64,7 +64,7 @@ ___
 
 #  <center>**Live Performance**</center>
 
-## []()
+## [My Live Performance for NOBODY - Thunder Jackson in Reno]()
 📍 Reno, Nevada, USA
 *See this track on our [music map 🗺️]()*
 </center>
@@ -150,7 +150,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkwMDE2ODI0MSwtMTAyNjA5OTMxNCwxNj
+eyJoaXN0b3J5IjpbMTg5NzI1Mjk3OCwtMTAyNjA5OTMxNCwxNj
 kyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LDgyODU0MTgx
 MSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMyNDcyOTIsND
 IzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4
