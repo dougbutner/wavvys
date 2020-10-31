@@ -94,9 +94,9 @@ Deca brings us colorful syllables delicately weaved into a tapestry displaying t
 To me, a long time fan and artist in the genre, it's a bright bulb in a dimming field of hip hop. Thought provoking speech samples throughout the album bring us back decades. 
 
 
-🕵 Discovered with  views,  likes on Youtube
+🕵 Discovered with 12,306 views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]()
+🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]() 
 
 💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
 
@@ -150,7 +150,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg2NDMzOTY1MiwtMTAyNjA5OTMxNCwxNj
+eyJoaXN0b3J5IjpbLTQ0NzM3MjgxNiwtMTAyNjA5OTMxNCwxNj
 kyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LDgyODU0MTgx
 MSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMyNDcyOTIsND
 IzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4
