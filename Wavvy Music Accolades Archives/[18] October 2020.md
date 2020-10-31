@@ -114,7 +114,7 @@ Gold Version offers three new map styles, and improved music dots.
 
 This is the final minor release until we move to Beta, with crypto rewards on the Wax blockchain, and so much more. 
 
-Gold Version offers genre filled-dots at a deeper zoom level and three new map styles
+Gold Version offers the simpler genre dots at a deeper zoom level and three new map styles. Access the new styles
 
 Click 🗺️ Style -> 🗺️ Background
 
@@ -123,6 +123,7 @@ Click 🗺️ Style -> 🗺️ Background
 🎃 Pumpkin  🟧 🟪
 
 🌍 Pachamama 🟦 🟩 
+
 
 
 
@@ -150,8 +151,8 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE0ODQxNjk3NiwtMTg2NTMwODYyMCw0Mj
-AxNTI2MjcsLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxODcwOTk1
-NjQ2LC01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLT
-E4MTMxMTcwNjIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbNTA2NDU3MjI5LC0xODY1MzA4NjIwLDQyMD
+E1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3LDE4NzA5OTU2
+NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NTEwNDgxNCwtMT
+gxMzExNzA2MiwxNjc5NTczOTI2XX0=
 -->
