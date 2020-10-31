@@ -56,10 +56,9 @@ We look forward to more Diamonds from Buz.
 🎧 Listen on [Spotify](https://open.spotify.com/artist/3HLwtkKPPvrbf7iCZnGKgO) ~ [Youtube](https://www.youtube.com/watch?v=CcgX7ps3g8U) ~ [Soundcloud]()
 
 
-💫 Connect on [Instagram]() ~ [Facebook]() ~ [Twitter]()
+💫 Connect on [Instagram](https://www.instagram.com/indiebuz/) 
 
 
-🔗 Find  on: []()
 
 ___
 
@@ -153,10 +152,10 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwOTAwMTg0ODYsLTIxNDcwNDY4ODgsMj
-czMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIy
-OSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLT
-EwMzM1Nzg2NywxODcwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4
-OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl
-19
+eyJoaXN0b3J5IjpbODI4NTQxODExLC0yMDkwMDE4NDg2LC0yMT
+Q3MDQ2ODg4LDI3MzI0NzI5Miw0MjM4ODc5ODgsMTQ4NjgxMTMy
+OSw1MDY0NTcyMjksLTE4NjUzMDg2MjAsNDIwMTUyNjI3LC0xMz
+g1Njc1NjU0LC0xMDMzNTc4NjcsMTg3MDk5NTY0NiwtNTg0MjM0
+MjI5LC0xMTI0ODk5Mzk3LDk1MTA0ODE0LC0xODEzMTE3MDYyLD
+E2Nzk1NzM5MjZdfQ==
 -->
