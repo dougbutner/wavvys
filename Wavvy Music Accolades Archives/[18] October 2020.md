@@ -34,7 +34,7 @@ This change in perspective is why this piece was chosen. To change a perspective
 
 💫 Connect on [Instagram](https://www.instagram.com/mundinova.music/) ~ [Facebook](https://www.facebook.com/mundinovamusic/) 
 
-🔗 Find  on: []()
+🔗 Find Mundinova on: [mundinova.pl](https://mundinova.pl/en/mundi-2/)
 
 ___
 
@@ -153,9 +153,9 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI5NDAwMDY1OCwyNzMyNDcyOTIsNDIzOD
-g3OTg4LDE0ODY4MTEzMjksNTA2NDU3MjI5LC0xODY1MzA4NjIw
-LDQyMDE1MjYyNywtMTM4NTY3NTY1NCwtMTAzMzU3ODY3LDE4Nz
-A5OTU2NDYsLTU4NDIzNDIyOSwtMTEyNDg5OTM5Nyw5NTEwNDgx
-NCwtMTgxMzExNzA2MiwxNjc5NTczOTI2XX0=
+eyJoaXN0b3J5IjpbLTIxNDcwNDY4ODgsMjczMjQ3MjkyLDQyMz
+g4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIyOSwtMTg2NTMwODYy
+MCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxOD
+cwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4
+MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl19
 -->
