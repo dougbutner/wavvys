@@ -107,7 +107,9 @@ ___
 # <center>📰 News Section </center>
 ## *Headline:*  GOLD VERSION
 
+Friends, we recently debuted the latest version of cXc Music, Gold Version. 
 
+Gold Version offers three new styles 
 
 
 
@@ -138,7 +140,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMzM1Nzg2NywxODcwOTk1NjQ2LC01OD
-QyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4MTQsLTE4MTMxMTcw
-NjIsMTY3OTU3MzkyNl19
+eyJoaXN0b3J5IjpbLTEzODU2NzU2NTQsLTEwMzM1Nzg2NywxOD
+cwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4OTkzOTcsOTUxMDQ4
+MTQsLTE4MTMxMTcwNjIsMTY3OTU3MzkyNl19
 -->
