@@ -69,7 +69,7 @@ ___
 *See this track on our [music map 🗺️]()*
 </center>
 
-Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. 
+Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy playing and releasing a on of music this y
 
 Thunder has been holding concerts for nobody amid the pandemic, creating something from nothing, and that something tickles the angels so well I think it's worth sharing. 
 
@@ -96,11 +96,9 @@ To me, a long time fan and artist in the genre, it's a bright bulb in a dimming 
 
 🕵 Discovered with 12,306 views,  likes on Youtube
 
-🎧 Listen on [Spotify]() ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]() ~ [Bandcamp](https://deca.bandcamp.com/album/snakes-and-birds)
+🎧 Listen on [Spotify](https://open.spotify.com/album/45YqsEtwX8y55UxoUyqyQP) ~ [Youtube](https://www.youtube.com/watch?v=wjzt00RmK-I) ~ [Soundcloud]() ~ [Bandcamp](https://deca.bandcamp.com/album/snakes-and-birds)
 
 💫 Connect on [Instagram](https://www.instagram.com/decamusic/?hl=en) ~ [Facebook](https://www.facebook.com/DecaMusic/) ~ [Twitter](https://twitter.com/decamusic?lang=en)
-
-🔗 Find  on: []()
 
 
 ___
@@ -150,11 +148,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg5NjYyMDI4LC0xMDI2MDk5MzE0LDE2OT
-I1MDE3NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQxODEx
-LC0yMDkwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Miw0Mj
-M4ODc5ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUzMDg2
-MjAsNDIwMTUyNjI3LC0xMzg1Njc1NjU0LC0xMDMzNTc4NjcsMT
-g3MDk5NTY0NiwtNTg0MjM0MjI5LC0xMTI0ODk5Mzk3LDk1MTA0
-ODE0XX0=
+eyJoaXN0b3J5IjpbLTM3NTcxMzUwNywxODk2NjIwMjgsLTEwMj
+YwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMTI5MzExODY2
+NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4ODgsMj
+czMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIy
+OSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLT
+EwMzM1Nzg2NywxODcwOTk1NjQ2LC01ODQyMzQyMjksLTExMjQ4
+OTkzOTddfQ==
 -->
