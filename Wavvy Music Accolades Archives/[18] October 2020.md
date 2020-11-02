@@ -84,7 +84,7 @@ ___
 
 
 ## [Snakes and Birds by Deca]()
-📍 
+📍 Brooklyn, New York, USS
 *See this track on our [music map 🗺️]()*
  
 </center>
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NTcyMjk2MzgsNDI1MDA1NjU4LC0xMz
-gzMTU1NTI1LC01OTYxMjM0MTAsMjA2NzkxMTc5NywtMTQzNjc0
-NTA3Myw3OTMxMjkzMzUsMTg5NjYyMDI4LC0xMDI2MDk5MzE0LD
-E2OTI1MDE3NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQx
-ODExLC0yMDkwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Mi
-w0MjM4ODc5ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUz
-MDg2MjBdfQ==
+eyJoaXN0b3J5IjpbNTI5NDExOTM0LC0xNzU3MjI5NjM4LDQyNT
+AwNTY1OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLDIwNjc5MTE3
+OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAyOCwtMT
+AyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4
+NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OC
+wyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3
+MjI5XX0=
 -->
