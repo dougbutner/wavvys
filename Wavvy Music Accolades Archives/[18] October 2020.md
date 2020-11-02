@@ -42,7 +42,7 @@ ___
 #  <center> **Single**</center> 
 
 ## [BUZ - ACRES OF DIAMONDS]()
-📍 
+📍 Brooklyn, New York, USA
 *See this track on our [music map 🗺️]()*
 </center>
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MDcwODUxMDcsLTU5NjEyMzQxMCwyMD
-Y3OTExNzk3LC0xNDM2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIw
-MjgsLTEwMjYwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMT
-I5MzExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcw
-NDY4ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LD
-UwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2
-NzU2NTRdfQ==
+eyJoaXN0b3J5IjpbLTU1NjUwMzQ2MSwtNTk2MTIzNDEwLDIwNj
+c5MTE3OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAy
+OCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMj
+kzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0
+Njg4OCwyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEzMjksNT
+A2NDU3MjI5LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMTM4NTY3
+NTY1NF19
 -->
