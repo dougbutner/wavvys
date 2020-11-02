@@ -66,7 +66,7 @@ ___
 
 ## [My Live Performance for NOBODY - Thunder Jackson in Reno]()
 📍 Reno, Nevada, USA
-*See this track on our [music map 🗺️]()*
+*See this track on our [music map 🗺️](https://music.cxc.world/?id=1834)*
 </center>
 
 Thunder Jackson lives up to his name with an incredible soulful sound that I had to check wasn't a dubbed studio recording before declaring this performance the winner. Thunder has been busy releasing a ton of music in 2020, and holding concerts for nobody amid the pandemic, creating something from nothing, and that something vibrates the follicles so well I had to share it with you. 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDI1MDA1NjU4LC0xMzgzMTU1NTI1LC01OT
-YxMjM0MTAsMjA2NzkxMTc5NywtMTQzNjc0NTA3Myw3OTMxMjkz
-MzUsMTg5NjYyMDI4LC0xMDI2MDk5MzE0LDE2OTI1MDE3NjksMz
-Q3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQxODExLC0yMDkwMDE4
-NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Miw0MjM4ODc5ODgsMT
-Q4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUzMDg2MjAsNDIwMTUy
-NjI3XX0=
+eyJoaXN0b3J5IjpbLTE3NTcyMjk2MzgsNDI1MDA1NjU4LC0xMz
+gzMTU1NTI1LC01OTYxMjM0MTAsMjA2NzkxMTc5NywtMTQzNjc0
+NTA3Myw3OTMxMjkzMzUsMTg5NjYyMDI4LC0xMDI2MDk5MzE0LD
+E2OTI1MDE3NjksMzQ3MzQ3MzkwLDEyOTMxMTg2NjQsODI4NTQx
+ODExLC0yMDkwMDE4NDg2LC0yMTQ3MDQ2ODg4LDI3MzI0NzI5Mi
+w0MjM4ODc5ODgsMTQ4NjgxMTMyOSw1MDY0NTcyMjksLTE4NjUz
+MDg2MjBdfQ==
 -->
