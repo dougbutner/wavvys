@@ -84,8 +84,8 @@ ___
 
 
 ## [Snakes and Birds by Deca]()
-📍 Brooklyn, New York, USS
-*See this track on our [music map 🗺️]()*
+📍 Brooklyn, New York, USA
+*See this track on our [music map 🗺️](https://music.cxc.world/?id=1835)*
  
 </center>
 Deca brings us colorful syllables delicately weaved into a tapestry displaying stories of human consciousness and humanity's struggles. From the demons in the head of men, to freeing ourself from our own cages, this album is full of symbolism, lyricism, and reflection. 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTI5NDExOTM0LC0xNzU3MjI5NjM4LDQyNT
-AwNTY1OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLDIwNjc5MTE3
-OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAyOCwtMT
-AyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4
-NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OC
-wyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEzMjksNTA2NDU3
-MjI5XX0=
+eyJoaXN0b3J5IjpbMTEzNzc3NzY3NSwtMTc1NzIyOTYzOCw0Mj
+UwMDU2NTgsLTEzODMxNTU1MjUsLTU5NjEyMzQxMCwyMDY3OTEx
+Nzk3LC0xNDM2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIwMjgsLT
+EwMjYwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMTI5MzEx
+ODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4OD
+gsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1
+NzIyOV19
 -->
