@@ -1,6 +1,6 @@
 
 # <center> **Wavvy Music Accolades**</center> 
-###### <center> Month, 2020</center> 
+###### <center> October, 2020</center> 
 
 ___
 
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU5NjEyMzQxMCwyMDY3OTExNzk3LC0xND
-M2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIwMjgsLTEwMjYwOTkz
-MTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMTI5MzExODY2NCw4Mj
-g1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcwNDY4ODgsMjczMjQ3
-MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LDUwNjQ1NzIyOSwtMT
-g2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2NzU2NTQsLTEwMzM1
-Nzg2N119
+eyJoaXN0b3J5IjpbLTEwOTg1MjY2NDIsLTU5NjEyMzQxMCwyMD
+Y3OTExNzk3LC0xNDM2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIw
+MjgsLTEwMjYwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMT
+I5MzExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcw
+NDY4ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LD
+UwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2
+NzU2NTRdfQ==
 -->
