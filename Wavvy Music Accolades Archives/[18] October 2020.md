@@ -83,7 +83,7 @@ ___
 #  <center>**Album**</center>
 
 
-## []()
+## [Deca]()
 📍 
 *See this track on our [music map 🗺️]()*
  
@@ -147,7 +147,7 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU1NjUwMzQ2MSwtNTk2MTIzNDEwLDIwNj
+eyJoaXN0b3J5IjpbMTMyMjg0ODc5NCwtNTk2MTIzNDEwLDIwNj
 c5MTE3OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAy
 OCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMj
 kzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0
