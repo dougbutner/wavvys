@@ -43,7 +43,7 @@ ___
 
 ## [BUZ - ACRES OF DIAMONDS]()
 📍 Brooklyn, New York, USA
-*See this track on our [music map 🗺️]()*
+*See this track on our [music map 🗺️](https://music.cxc.world/?locLat=40.689&locLng=-73.874&zoom=10&id=1830)*
 </center>
 
 Buz brings us a relatable tale of personal struggle, growth, and finding the diamonds within ourselves. The title "Acres of Diamonds" is a reference to a story about a well-off man who sells his bountiful estate to go search for diamonds, and ends up penniless and suicidal. The man he sold his land to soon finds that it is filled with diamonds, and the spot becomes the most productive diamond mine in the world. The analogy is that we are all sitting on immense wealth within ourselves, we just have to be content and love ourselves, and look inside to recognize those diamonds, polish them, and share them with the world. 
@@ -83,7 +83,7 @@ ___
 #  <center>**Album**</center>
 
 
-## [Deca]()
+## [Snakes and Birds by Deca]()
 📍 
 *See this track on our [music map 🗺️]()*
  
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMyMjg0ODc5NCwtNTk2MTIzNDEwLDIwNj
-c5MTE3OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAy
-OCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMj
-kzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0
-Njg4OCwyNzMyNDcyOTIsNDIzODg3OTg4LDE0ODY4MTEzMjksNT
-A2NDU3MjI5LC0xODY1MzA4NjIwLDQyMDE1MjYyNywtMTM4NTY3
-NTY1NF19
+eyJoaXN0b3J5IjpbLTEzODMxNTU1MjUsLTU5NjEyMzQxMCwyMD
+Y3OTExNzk3LC0xNDM2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIw
+MjgsLTEwMjYwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMT
+I5MzExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcw
+NDY4ODgsMjczMjQ3MjkyLDQyMzg4Nzk4OCwxNDg2ODExMzI5LD
+UwNjQ1NzIyOSwtMTg2NTMwODYyMCw0MjAxNTI2MjcsLTEzODU2
+NzU2NTRdfQ==
 -->
