@@ -6,7 +6,7 @@ ___
 
 # Watch the winning music playlist here, presented by [Douglas](https://douglas.life)
 
-
+https://www.youtube.com/watch?v=KqEEb1Qlo3Y&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=1
 
 
 ___
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzQ0NDAyNjMwLDg5NzYxMjQxMiwxMTM3Nz
-c3Njc1LC0xNzU3MjI5NjM4LDQyNTAwNTY1OCwtMTM4MzE1NTUy
-NSwtNTk2MTIzNDEwLDIwNjc5MTE3OTcsLTE0MzY3NDUwNzMsNz
-kzMTI5MzM1LDE4OTY2MjAyOCwtMTAyNjA5OTMxNCwxNjkyNTAx
-NzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LDgyODU0MTgxMSwtMj
-A5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMyNDcyOTIsNDIzODg3
-OTg4XX0=
+eyJoaXN0b3J5IjpbLTE0MTI0MDUxMjUsNzQ0NDAyNjMwLDg5Nz
+YxMjQxMiwxMTM3Nzc3Njc1LC0xNzU3MjI5NjM4LDQyNTAwNTY1
+OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLDIwNjc5MTE3OTcsLT
+E0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAyOCwtMTAyNjA5
+OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LD
+gyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMy
+NDcyOTJdfQ==
 -->
