@@ -41,6 +41,8 @@ ___
 
 #  <center> **Single**</center> 
 
+https://www.youtube.com/watch?v=CcgX7ps3g8U&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=2
+
 ## [BUZ - ACRES OF DIAMONDS](https://www.youtube.com/watch?v=CcgX7ps3g8U&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=2)
 📍 Brooklyn, New York, USA
 *See this track on our [music map 🗺️](https://music.cxc.world/?locLat=40.689&locLng=-73.874&zoom=10&id=1830)*
@@ -64,6 +66,8 @@ ___
 
 #  <center>**Live Performance**</center>
 
+https://www.youtube.com/watch?v=izAYrp8c6SE&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=3
+
 ## [My Live Performance for NOBODY - Thunder Jackson](https://www.youtube.com/watch?v=izAYrp8c6SE&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=3)
 📍 Reno, Nevada, USA
 *See this track on our [music map 🗺️](https://music.cxc.world/?id=1834)*
@@ -82,6 +86,7 @@ ___
 
 #  <center>**Album**</center>
 
+https://www.youtube.com/watch?v=wjzt00RmK-I&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=4
 
 ## [Snakes and Birds by Deca](https://www.youtube.com/watch?v=wjzt00RmK-I&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-&index=4)
 📍 Brooklyn, New York, USA
@@ -147,11 +152,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NTc3Mjc0NzAsLTE0MTI0MDUxMjUsNz
-Q0NDAyNjMwLDg5NzYxMjQxMiwxMTM3Nzc3Njc1LC0xNzU3MjI5
-NjM4LDQyNTAwNTY1OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLD
-IwNjc5MTE3OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2
-MjAyOCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MC
-wxMjkzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0
-NzA0Njg4OF19
+eyJoaXN0b3J5IjpbODYyMDM3OTExLC0xNDEyNDA1MTI1LDc0ND
+QwMjYzMCw4OTc2MTI0MTIsMTEzNzc3NzY3NSwtMTc1NzIyOTYz
+OCw0MjUwMDU2NTgsLTEzODMxNTU1MjUsLTU5NjEyMzQxMCwyMD
+Y3OTExNzk3LC0xNDM2NzQ1MDczLDc5MzEyOTMzNSwxODk2NjIw
+MjgsLTEwMjYwOTkzMTQsMTY5MjUwMTc2OSwzNDczNDczOTAsMT
+I5MzExODY2NCw4Mjg1NDE4MTEsLTIwOTAwMTg0ODYsLTIxNDcw
+NDY4ODhdfQ==
 -->
