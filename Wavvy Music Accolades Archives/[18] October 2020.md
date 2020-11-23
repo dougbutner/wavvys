@@ -17,7 +17,7 @@ ___
 
 #  <center> **Music Video**</center> 
 
-
+https://www.youtube.com/watch?v=8fJM_bNKFME&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-
 
 ## [Indygo by MUNDINOVA](https://www.youtube.com/watch?v=8fJM_bNKFME&list=PLrr_9HPPROSfNBOAuRIDS8MkblqWrDEV-)
 📍 Gniewoszów, Poland
@@ -147,11 +147,11 @@ An accolade is a recognition of merit. We started the Wavvy Music Accolades to r
 
 🔑 👉 Want to be sure we don't miss your music or the music you love? Reply with your [cXc Music](https://music.cxc.world) link for it to be considered for next week's Wavvys!! 🏆
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MTI0MDUxMjUsNzQ0NDAyNjMwLDg5Nz
-YxMjQxMiwxMTM3Nzc3Njc1LC0xNzU3MjI5NjM4LDQyNTAwNTY1
-OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLDIwNjc5MTE3OTcsLT
-E0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2MjAyOCwtMTAyNjA5
-OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MCwxMjkzMTE4NjY0LD
-gyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0NzA0Njg4OCwyNzMy
-NDcyOTJdfQ==
+eyJoaXN0b3J5IjpbLTE1NTc3Mjc0NzAsLTE0MTI0MDUxMjUsNz
+Q0NDAyNjMwLDg5NzYxMjQxMiwxMTM3Nzc3Njc1LC0xNzU3MjI5
+NjM4LDQyNTAwNTY1OCwtMTM4MzE1NTUyNSwtNTk2MTIzNDEwLD
+IwNjc5MTE3OTcsLTE0MzY3NDUwNzMsNzkzMTI5MzM1LDE4OTY2
+MjAyOCwtMTAyNjA5OTMxNCwxNjkyNTAxNzY5LDM0NzM0NzM5MC
+wxMjkzMTE4NjY0LDgyODU0MTgxMSwtMjA5MDAxODQ4NiwtMjE0
+NzA0Njg4OF19
 -->
