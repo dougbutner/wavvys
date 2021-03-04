@@ -5,6 +5,8 @@ We look for music that sounds good and displays creative authenticity.
 
 Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to win a Wavvy. 
 
+> 2021 Update: Wavvys have been suspended pending the release of Beta so Douglas can focus on coding and bringing you music NFTs
+
 ## Watch the Wavvys
 
 On **[Youtube](https://www.youtube.com/watch?v=FCF4niA8KUU&list=PLrr_9HPPROScrc1wx-gqLvWOwYfF_karW)**
@@ -45,7 +47,7 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE4NjgxMzE4NywtMTQ1NTY2MDQwNywtMj
-AzNzczMDk5MiwxMzYwMzk2NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4
-MDYzLDI3NTg3MjM4M119
+eyJoaXN0b3J5IjpbLTM1NjE2NDQ0NiwxMTg2ODEzMTg3LC0xND
+U1NjYwNDA3LC0yMDM3NzMwOTkyLDEzNjAzOTY2MzIsNjUyNDc0
+MDA4LC01MTcxNDgwNjMsMjc1ODcyMzgzXX0=
 -->
