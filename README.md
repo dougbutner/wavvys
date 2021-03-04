@@ -23,7 +23,7 @@ We select one winner in four categories: Music Video, Single, Live Performance, 
 After a 15-week weekly run, Wavvys have been changed to monthly awards starting July 2020. The WMAs are released at the beginning of each month recognizing the month previous. 
 
 ## Team
-The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [Karelia Blum](https://instagram.com/the_blum_universe). 
+The Wavvys are hosted by [Douglas Butner](https://douglas.life) and edited by [Karelia Blum](https://www.instagram.com/kareliablum). 
 
 Both Douglas and Karelia make the selections. 
 
@@ -47,7 +47,7 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1NjE2NDQ0NiwxMTg2ODEzMTg3LC0xND
-U1NjYwNDA3LC0yMDM3NzMwOTkyLDEzNjAzOTY2MzIsNjUyNDc0
-MDA4LC01MTcxNDgwNjMsMjc1ODcyMzgzXX0=
+eyJoaXN0b3J5IjpbLTk2NzcxOTQ4LC0zNTYxNjQ0NDYsMTE4Nj
+gxMzE4NywtMTQ1NTY2MDQwNywtMjAzNzczMDk5MiwxMzYwMzk2
+NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4MDYzLDI3NTg3MjM4M119
 -->
