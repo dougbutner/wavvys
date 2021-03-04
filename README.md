@@ -1,7 +1,13 @@
 # Wavvy Music Accolades 🌊
 The Wavvy Music Accolades recognizes incredible music with under 100k plays. 
 
-We look for music that sounds good and displays creative authenticity.
+We look for music that sounds 
+
+
+----------
+
+
+good and displays creative authenticity.
 
 Any music posted on [music.cxc.world](https://music.cxc.world) is eligible to win a Wavvy. 
 
@@ -47,7 +53,8 @@ The Wavvys are produced by [cXc Music](https://music.cxc.world), an application 
 ## Sponsors
 If you are interested in sponsoring one or more episodes of the Wavvys, please contact us [here](mailto:music.cxc.world@gmail.com) 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk2NzcxOTQ4LC0zNTYxNjQ0NDYsMTE4Nj
-gxMzE4NywtMTQ1NTY2MDQwNywtMjAzNzczMDk5MiwxMzYwMzk2
-NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4MDYzLDI3NTg3MjM4M119
+eyJoaXN0b3J5IjpbLTEyNTEyMTIyODAsLTk2NzcxOTQ4LC0zNT
+YxNjQ0NDYsMTE4NjgxMzE4NywtMTQ1NTY2MDQwNywtMjAzNzcz
+MDk5MiwxMzYwMzk2NjMyLDY1MjQ3NDAwOCwtNTE3MTQ4MDYzLD
+I3NTg3MjM4M119
 -->
