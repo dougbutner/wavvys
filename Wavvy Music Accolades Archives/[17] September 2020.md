@@ -22,11 +22,9 @@ https://www.youtube.com/watch?v=n4s4FCCwnGk&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_b
 #  <center> **Music Video**</center> 
 
 
+https://www.youtube.com/watch?v=FnOAvLPTclw
 
 ## [Lines by Keo Nozari](https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
-
-https://www.youtube.com/watch?v=FnOAvLPTclw&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q
-
 📍 New York City, New York, USA
 *See this track on our [music map 🗺️](https://music.cxc.world/?id=1819&locLat=40.760&locLng=-73.890&zoom=10)*
 </center>
@@ -77,9 +75,9 @@ We found this one organically on the map, and it's a wonderful example of why we
 
 #  <center>**Live Performance**</center>
 
-## [EASY FREAK - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
-
 https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q
+
+## [EASY FREAK - More Love (Performed Live)](https://www.youtube.com/watch?v=no8TGUsa95U&list=PLrr_9HPPROSeFPBpXtJr29ygkFaB_bt8Q)
 
 📍 Johannesburg, South Africa
 *See this track on our [music map 🗺️](https://music.cxc.world/?id=1817&locLat=-26.250&locLng=28.024&zoom=5)*
